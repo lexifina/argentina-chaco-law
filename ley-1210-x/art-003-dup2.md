@@ -1,0 +1,1 @@
+Artículo 3º: La distribución entre las provincias y la ciudad autónoma de Buenos Aires de los regímenes mencionados en los artículos anteriores se efectuará conforme a los índices que surgen de la normativa vigente a la fecha y en la forma prevista en la misma.
