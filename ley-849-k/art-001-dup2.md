@@ -1,0 +1,1 @@
+Artículo 1º: Créase el sistema federal de la vivienda con el objeto de facilitar las condiciones necesarias para posibilitar a la población de recursos insuficientes, en forma rápida y eficiente, el acceso a la vivienda digna. Ello, conforme lo previsto en el artículo 14 de la constitución nacional.
