@@ -1,0 +1,1 @@
+Artículo 2°: Las autoridades públicas que correspondan adoptarán las medidas pertinentes destinadas al permanente recordatorio de aquel hito que consagró el definitivo respeto a los derechos políticos femeninos.

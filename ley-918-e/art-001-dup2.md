@@ -1,0 +1,1 @@
+Artículo 1°: Establécese en todo el territorio de la Nación Argentina “Día Nacional de los Derechos Políticos de la Mujer”, el 23 de septiembre de cada año; en memoria de la publicación de la ley 13.010 que consagró la igualdad de derechos políticos entre el hombre y la mujer, el 23 de septiembre de 1947.
