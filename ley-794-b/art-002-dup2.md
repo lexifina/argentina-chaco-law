@@ -1,0 +1,1 @@
+Artículo 2: A los efectos de esta ley, se considera discapacitada a toda persona que padezca una alteración funcional permanente o prolongada, física o mental, que en relación a su edad y medio social implique desventajas considerables para su integración familiar, social, educacional o laboral.
