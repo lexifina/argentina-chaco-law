@@ -1,0 +1,2 @@
+Artículo 2º: Encomiéndese a la autoridad de aplicación definir las características de las empresas que serán consideradas pymes, teniendo en cuenta las peculiaridades de cada región del país, y los diversos sectores de la economía en que se desempeñan sin perjuicio de lo dispuesto en el artículo 83.
+Sección III. Instrumentos:
