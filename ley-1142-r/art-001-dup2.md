@@ -1,0 +1,1 @@
+Artículo 1°: Créase el Programa Nacional de Producción Orgánica (PRONAO), el cual funcionará en la jurisdicción de la Secretaria de Agricultura, Ganadería, Pesca y Alimentación del Ministerio de Economía.

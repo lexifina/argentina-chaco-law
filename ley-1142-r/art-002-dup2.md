@@ -1,0 +1,2 @@
+Artículo 2°: Fíjanse como objetivos del PRONAO los siguientes:
+– Promover el desarrollo integral de la Producción Orgánica en todo el país. – Evidenciar y potenciar las ventajas competitivas que en la materia tiene nuestro país. Facilitar la producción y comercio de productos orgánicos. – Incrementar la presencia de los productos orgánicos en el mercado. Fortalecer el sistema de control y la confianza de los consumidores. – Identificar y facilitar la fuente de financiamiento.

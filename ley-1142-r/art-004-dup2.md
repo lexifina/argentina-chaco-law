@@ -1,0 +1,1 @@
+Artículo 4°: Apruébase el Reglamento del Sistema de Producción, Comercialización, Control y Certificación de Productos Orgánicos, Ecológicos y Biológicos, que como Anexo 1 forma parte de la presente medida.

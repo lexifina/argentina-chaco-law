@@ -1,0 +1,2 @@
+Artículo 7°: Los establecimientos donde se elaboran productos orgánicos, deberán evitar contaminaciones de los mismos y deberán ser desinfectados con técnicas y productos acordes a este tipo de producción orgánica. Nunca se permitirán situaciones que puedan conducir a la mezcla de productos, o a la contaminación de los alimentos orgánicos por prácticas inadecuadas. Asimismo, cumplirán con la normativa vigente en el país en cuanto a productos convencionales.
+IV. Sistemas de control
