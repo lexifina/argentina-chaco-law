@@ -1,0 +1,1 @@
+Artículo 3º: Sustituyese el inciso c) del Anexo I del Decreto Nº 676/93 por el siguiente: c) Monto: quinientos millones de pesos ($ 500.000.000.) Divididos en 48 series hasta completar el monto indicado.
