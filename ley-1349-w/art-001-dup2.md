@@ -1,0 +1,1 @@
+Artículo 1º: Los restos mortales de aborígenes, cualquiera fuera su característica étnica, que formen parte de museos y/o colecciones públicas o privadas, deberán ser puestos a disposición de los pueblos indígenas y/o comunidades de pertenencia que lo reclamen.

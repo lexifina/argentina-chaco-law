@@ -1,0 +1,1 @@
+Artículo 2º: Los restos mencionados en el artículo anterior y que no fueren reclamados por sus comunidades podrán seguir a disposición de las instituciones que los albergan, debiendo ser tratados con el respeto y la consideración que se brinda a todos los cadáveres humanos.

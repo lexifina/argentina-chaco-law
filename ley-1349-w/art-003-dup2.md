@@ -1,0 +1,1 @@
+Artículo 3º: Para realizarse todo emprendimiento científico que tenga por objeto a las comunidades aborígenes, incluyendo su patrimonio histórico y cultural, deberá contar con el expreso consentimiento de las comunidades interesadas.
