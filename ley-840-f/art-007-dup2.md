@@ -1,0 +1,2 @@
+Artículo 7º: Al iniciarse el juicio cuyo monto sea indeterminado se abonará la suma prevista en el artículo 8°, la tasa de justicia se completará luego de terminado el proceso de un modo normal o anormal y siempre que resulte de los autos un monto determinado.
+JUICIOS NO SUSCEPTIBLES DE APRECIACIÓN PECUNIARIA
