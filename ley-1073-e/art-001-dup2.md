@@ -1,0 +1,1 @@
+Artículo 1°: Fíjase como Día de la Afirmación de los Derechos Argentinos sobre las Malvinas, Islas y sector antártico, el 10 de junio, expresión de soberanía que se celebrará todos los años en todo el país.
