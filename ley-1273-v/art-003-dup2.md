@@ -1,0 +1,1 @@
+Artículo 3°: El “Certificado nacional de autorización para agencias de turismo estudiantil” será expedido por el Registro de Agentes de Viajes a cargo del Ministerio de Turismo de la Nación, que evaluará y acreditará el cumplimiento de todos los recaudos legales que exige la presente Ley y su reglamentación.

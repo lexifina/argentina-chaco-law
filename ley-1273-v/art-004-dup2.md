@@ -1,0 +1,1 @@
+Artículo 4°: Todas las actuaciones que surjan a partir de la aplicación de la presente Ley deberán incorporarse al legajo de cada agencia que obra en el Registro de Agentes de Viajes del Ministerio de Turismo de la Nación.

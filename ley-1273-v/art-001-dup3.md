@@ -1,0 +1,1 @@
+Artículo 1°: Las agencias de viajes turísticos debidamente habilitadas e inscriptas en el Registro de Agentes de Viajes del Ministerio de Turismo de la Nación, de conformidad con la Ley 18829 que brinden servicios a contingentes estudiantiles, deberán contar con un “Certificado nacional de autorización para agencias de turismo estudiantil”.

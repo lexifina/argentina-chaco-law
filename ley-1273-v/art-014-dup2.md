@@ -1,0 +1,1 @@
+Artículo 14: El Ministerio de Turismo, Cultura y Deporte de la Nación deberá cancelar en forma inmediata el “Certificado nacional de autorización para agencias de turismo estudiantil” a las agencias de viajes turísticos que transgredan las prescripciones de la presente ley, sin perjuicio de lo determinado por la ley 18.829.

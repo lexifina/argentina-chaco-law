@@ -1,0 +1,1 @@
+Artículo 2º: El Poder Ejecutivo, por intermedio del organismo de aplicación podrá negar el otorgamiento o cancelar las licencias ya otorgadas a las personas o agencias cuyos integrantes registren antecedentes personales, morales, comerciales, bancarios o judiciales desfavorables, similares a los que inhabilitan para el acceso a las funciones o cargos públicos.

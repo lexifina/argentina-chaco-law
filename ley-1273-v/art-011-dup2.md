@@ -1,0 +1,1 @@
+Artículo 11: Las agencias de viajes constituirán seguros de responsabilidad civil, de vida, de accidentes personales y de cobertura médica total, para cada uno de todos los integrantes de cada contingente de estudiantes, que cubra los riesgos desde el inicio hasta la finalización del viaje.

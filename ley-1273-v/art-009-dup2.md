@@ -1,0 +1,1 @@
+Artículo 9°: Las agencias de viajes turísticos que no cumplan y/o alteren los servicios previamente pactados en el contrato, sin consentimiento expreso de la otra parte, deberán abonar a la parte perjudicada el valor del precio del servicio pactado que se haya incumplido.

@@ -1,0 +1,1 @@
+Artículo 12: El Ministerio de Turismo de la Nación promoverá, en coordinación con las autoridades educativas de las jurisdicciones provinciales y de la Ciudad Autónoma de Buenos Aires, la realización de viajes de estudios.
