@@ -1,0 +1,1 @@
+Artículo 10: En las causas que no fuera menester la habilitación de la instancia, se cursará de igual forma y manera la notificación a la Procuración del Tesoro de la Nación con una anticipación no menor de treinta (30) días hábiles judiciales al traslado de la demanda que se curse al organismo pertinente.

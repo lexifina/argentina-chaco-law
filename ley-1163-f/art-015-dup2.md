@@ -1,0 +1,1 @@
+Artículo 15: Alternativamente a la forma de pago prevista, los acreedores podrán optar por suscribir a la par, por el importe total o parcial de su crédito, en moneda nacional o en dólares estadounidenses, bonos de consolidación o bonos de consolidación de deuda previsional, en las condiciones que determine la reglamentación.

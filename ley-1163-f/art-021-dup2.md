@@ -1,0 +1,1 @@
+Artículo 21: Facúltase al Jefe de Gabinete de Ministros o al funcionario en quien se delegue la facultad, a suscribir los acuerdos respectivos, los que deberán expresar el saldo definitivo, resultante de la totalidad de las operaciones que vincularan al Estado nacional y a los entes mencionados en el artículo 19 de la presente ley a la fecha de promulgación de la presente.

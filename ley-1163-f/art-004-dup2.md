@@ -1,0 +1,1 @@
+Artículo 4°: El Poder Ejecutivo podrá reubicar al personal de su ámbito del sector público nacional a fin de obtener una mejor racionalización de los recursos humanos existentes, dentro de la zona geográfica de su residencia y escalafón en que reviste.

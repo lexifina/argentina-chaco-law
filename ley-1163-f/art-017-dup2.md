@@ -1,0 +1,1 @@
+Artículo 17: Los suscriptores originales de los bonos de consolidación - cuarta serie y los tenedores de los bonos de consolidación de deudas previsionales - tercera serie podrán cancelar a la par deudas vencidas al 1° de enero de 2000 comprendidas y en las condiciones previstas, para cada uno de los bonos en los artículos 13, 14 y 15 de la ley 23.982.
