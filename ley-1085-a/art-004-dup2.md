@@ -1,0 +1,1 @@
+Artículo 4º: Los inmuebles innecesarios propiedad de los entes mencionados en el artículo 1º que con anterioridad al 30 de junio de 1992 estuvieren ocupados por las jurisdicciones provinciales, municipales o comunales con fines de utilidad pública, deberán ser transferidos gratuitamente a la jurisdicción solicitante, con destino al cumplimiento de los mismos fines.

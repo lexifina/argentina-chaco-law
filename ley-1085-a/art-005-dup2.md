@@ -1,0 +1,1 @@
+Artículo 5º: El Poder Ejecutivo Nacional podrá transferir a título gratuito los inmuebles mencionados en el Artículo 1º a entidades de bien público sin fines de lucro que los estén ocupando, siempre y cuando los destinen a los mismos fines que establece el artículo 3º, a petición de la provincia, municipio o comuna respectivo.
