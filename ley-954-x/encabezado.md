@@ -1,0 +1,5 @@
+La Cámara de Diputados de La Provincia del Chaco
+Sanciona con Fuerza de Ley Nro. 954-X
+(Antes Ley 4506)
+CONVENIO PARA LA EXPLOTACIÓN DE LOS SERVICIOS INTERURBANOS DE
+PASAJEROS EN LA EMPRESA F. C. GENERAL BELGRANO S. A.
