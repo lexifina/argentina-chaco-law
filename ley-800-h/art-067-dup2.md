@@ -1,0 +1,3 @@
+Artículo 67 precedente, a los efectos de posibilitar que el InSSSeP cuente con los antecedentes respectivos en tiempo y en forma, los afiliados pasivos que fueren casados y separados judicialmente o de hecho, los solteros y viudos que vivieren en unión convivencial deberán presentar en el término que fije la reglamentación, una declaración jurada de tal circunstancia.
+La Dirección de Jubilaciones y Pensiones adoptará los recaudos conducentes para que los jubilados comprendidos en esta situación cuenten con la declaración jurada en el expediente respectivo por el que tramitó el beneficio.
+IMPEDIMENTO PARA OBTENER LA PRESTACIÓN
