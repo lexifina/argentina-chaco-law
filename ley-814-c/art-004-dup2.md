@@ -1,0 +1,1 @@
+Artículo 4°: Cuando el bien cuyo valor deba actualizarse hasta el 1 de abril de 1991 sea una suma de dinero, se actualizará hasta entonces mediante la aplicación de los índices, estadísticas u otros mecanismos establecidos en las normas de aplicación.
