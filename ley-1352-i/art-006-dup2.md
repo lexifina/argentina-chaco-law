@@ -1,0 +1,6 @@
+Artículo 6°: La autoridad de aplicación dará un tratamiento diferencial en los beneficios económicos y en los requisitos a cumplimentar a los productores de hacienda ovina que
+Fuente: Dirección de Información Parlamentaria Güemes 120 - 5° Piso
+T.E.: 0362 - 4441467 - Internos: 194-200 - Centrex: 41467 Email: dir.informacionparlamentaria@legislaturachaco.gov.ar
+ES COPIA DIGITAL
+explotan reducidas superficies o cuentan con pequeñas majadas y que se encuentran con necesidades básicas insatisfechas. Asimismo está autorizada a firmar convenios con organizaciones gubernamentales y no gubernamentales que cumplen funciones de desarrollo de este sector social a los efectos de optimizar la asistencia. En este caso, la ayuda económica se podrá otorgar a explotaciones que no cumplen con la condición de ser económicamente sustentables pero indefectiblemente deberán llevar a cabo con productores cuyo principal ingreso sea la explotación de hacienda ovina, en tierras agroecológicamente aptas, que cuenten con una cantidad de animales acordes a la capacidad forrajera de las mismas y utilicen prácticas de manejo de la hacienda que no afecten a los recursos naturales.
+Capítulo III. autoridad de aplicación, coordinador nacional y comisión asesora técnica
