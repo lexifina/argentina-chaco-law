@@ -1,0 +1,1 @@
+Artículo 42: La rendición de cuentas que se tenga por recepcionada de conformidad con el artículo 40 de esta ley, será sometida al examen de un Fiscal, quien la verificará en sus aspectos formal, legal, contable, numérico y documental y producirá un informe por escrito dentro del término que le fuere fijado.
