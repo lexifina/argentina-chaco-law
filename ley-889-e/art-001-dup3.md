@@ -1,0 +1,1 @@
+Artículo 1°: Para los efectos de la presente Convención, se entiende por niño todo ser humano menor de dieciocho años de edad, salvo que, en virtud de la ley que le sea aplicable, haya alcanzado antes la mayoría de edad.
