@@ -1,0 +1,1 @@
+Artículo 5°: Anterior convenio las partes ratifican íntegramente el convenio de asistencia financiera que suscribieran con fecha 31.08.95, en especial las obligaciones allí asumida por la provincia y convienen expresamente en declarar aplicable el punto 1.4 anterior del presente a dicho convenio.
