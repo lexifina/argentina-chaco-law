@@ -1,0 +1,2 @@
+Artículo 2°:
+a) A los fines de acreditar la condición de sucesión indivisa deberá acompañarse la correspondiente declaratoria de herederos o, en su defecto certificación extendida por el Tribunal ante el cual tramite la causa. b) El destino del mutuo, podrá acreditarse a través de la respectiva escritura constitutiva del derecho real de hipoteca o por la documentación respaldatoria del destino otorgado al referido mutuo. c) Sin reglamentar.

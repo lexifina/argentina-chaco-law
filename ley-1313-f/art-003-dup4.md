@@ -1,0 +1,1 @@
+Artículo 3°: Los pagos que no hayan importado la regularización de la situación de mora no obstarán a la elegibilidad del mutuo. Sin perjuicio de ello, dichos pagos deberán ser deducidos a los fines del artículo 16 de la presente reglamentación.

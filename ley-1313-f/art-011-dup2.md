@@ -1,0 +1,1 @@
+Artículo 11: La instrumentación del Sistema previsto en la Ley Nº 25.798 únicamente quedará perfeccionada a partir de que el deudor suscriba el contrato de mutuo que como Anexo IV forma parte de la presente reglamentación.

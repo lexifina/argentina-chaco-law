@@ -1,0 +1,1 @@
+Artículo 13: El fideicomiso tendrá un plazo de duración de treinta (30) años a partir de la entrada en vigencia de la presente reglamentación, o hasta el cumplimiento de su objeto si éste fuera menor.

@@ -1,0 +1,1 @@
+Artículo 4°: En aquellos supuestos en los que hubiere más de un (1) acreedor, el incumplimiento respecto de cualquiera de ellos constituirá mora conforme a lo dispuesto en el artículo 4° de la Ley que se reglamenta, salvo que, de las condiciones de la contratación surgiera que el crédito fuere simplemente mancomunado en los términos del artículo 691 del Código Civil.

@@ -1,0 +1,2 @@
+Artículo 8°: La declaración jurada que acredite los ingresos del grupo familiar deberá incluir a todas las personas que habiten el bien inmueble, asiento del derecho real de hipoteca y que perciban ingresos que puedan ser considerados a los fines de determinar la capacidad de pago, sin perjuicio de toda otra información que permita evaluar la misma. En la declaración jurada deberán detallarse como mínimo, los siguientes datos de cada una de las personas involucradas:
+I) Nombre y apellido. II) Tipo y Nº de documento de identidad. III) Monto de ingreso mensual.

@@ -1,0 +1,3 @@
+Artículo 2°: Mutuos Elegibles. A los fines de la presente ley, se entenderá como mutuo elegible aquellos mutuos garantizados con derecho real de hipoteca que cumplan con la totalidad de los siguientes requisitos:
+a) Que el deudor sea una persona física o sucesión indivisa; b) Que el destino del mutuo haya sido la adquisición, mejora, construcción y/o ampliación de vivienda, o la cancelación de mutuos constituidos originalmente para cualquiera de los destinos antes mencionados; c) Que dicha vivienda sea única y familiar.
+La naturaleza del acreedor no constituye requisito de elegibilidad, resultando incluidos en consecuencia, los mutuos celebrados con entidades financieras o acreedores no financieros, sin perjuicio de lo dispuesto en el artículo 26 de la presente ley.

@@ -1,0 +1,1 @@
+Artículo 5°: El Ministerio de Economía y Producción será la Autoridad de Aplicación e interpretación del presente decreto, quedando facultado para dictar las normas complementarias y/o aclaratorias que resultaren necesarias.
