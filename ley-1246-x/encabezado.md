@@ -1,0 +1,5 @@
+La Cámara De Diputados De La Provincia Del Chaco
+Sanciona Con fuerza De Ley Nro. 1246–X
+(Antes Ley 5177)
+CONVENIO DE PRÉSTAMO DEL FONDO PARA LA TRANSFORMACIÓN DE LOS
+SECTORES PÚBLICOS PROVINCIALES
