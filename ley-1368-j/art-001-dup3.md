@@ -1,0 +1,1 @@
+Artículo 1°: Para los efectos de esta Convención debe entenderse por violencia contra la mujer cualquier acción o conducta, basada en su género, que cause muerte, daño o sufrimiento físico, sexual o psicológico a la mujer, tanto en el ámbito público como en el privado.

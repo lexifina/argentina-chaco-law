@@ -1,0 +1,1 @@
+Artículo 1º: Apruébase la Convención Interamericana Para Prevenir, Sancionar y Erradicar La Violencia Contra La Mujer -“Convención De Belem Do Para”-, suscripta en Belem do Pará - República Federativa Del Brasil-, el 9 de junio de 1994, que consta de veinticinco (25) artículos, cuyo texto forma parte de la presente ley.
