@@ -1,0 +1,1 @@
+Artículo 10: La provincia se compromete a brindar la información detallada en el inciso c) del artículo 3 del Decreto PEN N° 743/03, el artículo 8 de la resolución del Ministerio de Economía N° 266/03 y su Anexo y toda otra que el Ministerio de Economía requiera en el marco del Programa de Unificación Monetaria, al tiempo de la ratificación legislativa del presente convenio.

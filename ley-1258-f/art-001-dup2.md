@@ -1,0 +1,1 @@
+Artículo 1º. La Provincia del Chaco adhiere al programa de unificación monetaria, creado por decreto de necesidad y urgencia del Poder Ejecutivo Nacional N° 743/2003 y la resolución del Ministerio de Economía de la Nación N° 266/2003, dictada en consecuencia de aquel.

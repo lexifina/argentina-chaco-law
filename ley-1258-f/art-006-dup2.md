@@ -1,0 +1,1 @@
+Artículo 6º: La provincia acepta que el Ministerio de Economía de la Nación, en coordinación con el Banco Central de la República Argentina, establezca el mecanismo de neutralización que estimen conveniente en caso de incumplimiento de los compromisos asumidos en los artículos 4 y 5 de este convenio.

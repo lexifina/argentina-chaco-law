@@ -1,0 +1,1 @@
+Artículo 7º: La provincia, en el marco de lo establecido en el artículo 3 del Decreto PEN N° 743/03 y el artículo 5 de la resolución del Ministerio de Economía N° 266/03, establece su opción por los “Bonos del Gobierno Nacional en dólares estadounidenses livor 2012”.

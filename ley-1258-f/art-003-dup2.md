@@ -1,0 +1,1 @@
+Artículo 3º: Para el supuesto de que el honorable Congreso de la Nación introduzca modificaciones al Programa de Unificación Monetaria o a los instrumentos definidos para su implementación por el Poder Ejecutivo Nacional, la Provincia del Chaco, en caso de considerarlo conveniente, solicitara la adecuación de dicho programa al nuevo mecanismo que así se sancione.

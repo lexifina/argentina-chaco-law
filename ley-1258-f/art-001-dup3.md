@@ -1,0 +1,1 @@
+Artículo 1º: Créase el Programa de Unificación Monetaria con el objeto de retirar los títulos provinciales que reúnan las características enunciadas en el Artículo 12 de la Ley Nº 25.561 y reemplazarlos por moneda nacional de curso legal, destinado a los Estados Provinciales de Buenos Aires, Catamarca, Córdoba, Corrientes, Chaco, Entre Ríos, Formosa, la Rioja, Mendoza y Tucumán.

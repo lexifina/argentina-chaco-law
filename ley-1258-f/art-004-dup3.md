@@ -1,0 +1,1 @@
+Artículo 4º :Cumplidas las condiciones y asumidos los compromisos establecidos en el artículo anterior, el Estado Nacional a través de un decreto aceptará la encomienda, fijará el monto máximo de rescate para la Jurisdicción y autorizará al Ministerio de Economía a efectuar las modificaciones presupuestarias correspondientes.

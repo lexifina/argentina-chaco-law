@@ -1,0 +1,1 @@
+Artículo 1º: El Programa de Unificación Monetaria comprenderá los Títulos emitidos por las Provincias de Buenos Aires, Catamarca, Córdoba, Corrientes, Chaco, Entre Ríos, Formosa, La Rioja, Mendoza y Tucumán.

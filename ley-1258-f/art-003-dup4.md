@@ -1,0 +1,1 @@
+Artículo 3° :Para el supuesto que el Honorable Congreso de la Nación introduzca modificaciones al Programa de Unificación Monetaria o a los instrumentos definidos para su implementación las Jurisdicciones podrán solicitar al Ministerio de Economía la adecuación del Programa al nuevo mecanismo que así se defina.
