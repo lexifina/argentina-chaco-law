@@ -1,0 +1,1 @@
+Artículo 1º: Apruébese el Convenio de Cooperación Educativa entre la República Argentina y la República de Cuba, suscripto en Buenos Aires el 25 de noviembre de 1998, que consta de once (11) artículos, cuya fotocopia autenticada forma parte de la presente ley.
