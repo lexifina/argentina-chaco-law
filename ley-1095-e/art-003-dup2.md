@@ -1,0 +1,1 @@
+Artículo 3º: Este régimen oficial, incluirá para las alumnas que certifiquen estar en período de amamantamiento, la franquicia del establecimiento durante una (1) hora diaria por el lapso de seis (6) meses a partir de su reincorporación a la escuela.

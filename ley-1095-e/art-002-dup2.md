@@ -1,0 +1,1 @@
+Artículo 2º: Las alumnas que presenten certificado médico de su estado y período de gestación y alumbramiento, tendrán treinta (30) inasistencias justificadas y no computables antes o después del parto, pudiendo ser continuas o fraccionadas.

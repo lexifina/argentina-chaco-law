@@ -1,0 +1,1 @@
+Artículo 4º: El no cómputo de las inasistencias a días y horas de clase no significará promoción automática, debiendo acreditar como alumna regular de acuerdo al sistema de promoción vigente de cada jurisdicción.

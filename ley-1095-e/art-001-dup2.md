@@ -1,0 +1,1 @@
+Artículo 1º: Créase un Régimen Especial de Inasistencias Justificadas por razones de gravidez para alumnas que cursen los ciclos de Enseñanza General Básica, Polimodal y Superior No Universitaria en establecimientos de jurisdicción nacional, provincial o municipal, que no posean una reglamentación con beneficios iguales o mayores a los que otorga esta ley.
