@@ -1,0 +1,1 @@
+Artículo 4°: En caso de prematuros, se procederá a la toma de los calcos papilares del recién nacido aunque no esté presente ningún surco transverso. Cuando éstos aparecieren, se procederá a la identificación antes del egreso del establecimiento médico asistencial.

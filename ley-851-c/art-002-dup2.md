@@ -1,0 +1,1 @@
+Artículo 2°: Cuando el nacimiento aconteciere en un establecimiento médico asistencial público o privado, durante el trabajo de parto deberá identificarse a la madre, y producido el nacimiento y antes del corte del cordón umbilical, al recién nacido, de acuerdo con lo establecido en el artículo 6°.
