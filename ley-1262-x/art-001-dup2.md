@@ -1,0 +1,1 @@
+Artículo 1°.: La Provincia se compromete a instrumentar un proceso de transformación del sector público mediante la implementación de medidas conducentes al fortalecimiento de los servicios públicos Provinciales, conforme se establece en la clausula 4 del presente convenio.

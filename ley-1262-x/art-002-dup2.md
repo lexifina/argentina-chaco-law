@@ -1,0 +1,1 @@
+Artículo 2°: Bajo las condiciones establecidas en el presente, el Ministerio asigna a la Provincia una parte de los recursos del fondo, hasta la suma de pesos un millón ($1.000.000, :), en forma adicional a los asignados en el convenio suscripto el 20 de febrero de 2003.
