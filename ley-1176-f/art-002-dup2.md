@@ -1,0 +1,1 @@
+Artículo 2º: El Estado Nacional podrá cancelar cualquier otra obligación que tuviere con las Jurisdicciones firmantes por el procedimiento descripto en el primer párrafo del artículo anterior, con el consentimiento de la Jurisdicción respectiva.
