@@ -1,0 +1,1 @@
+Artículo 1º: Apruébase el acuerdo entre la República Argentina y la República Italiana sobre intercambio de actas de estado civil y la Exención de Legalización de documentos, firmado en Roma el 9 de diciembre de 1987, cuyo texto original que consta de nueve artículos, en fotocopia autenticada, forma parte de la presente ley.
