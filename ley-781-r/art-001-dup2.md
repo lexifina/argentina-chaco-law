@@ -1,0 +1,1 @@
+Artículo 1°: Dispón ese la ejecución del carteo geológico regular y sistemático del territorio continental, insular, plataforma submarina y territorio antártico de la República Argentina en diferentes escalas.
