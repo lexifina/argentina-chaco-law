@@ -1,0 +1,1 @@
+artículo 1°. Quedan exceptuados de acompañar tal sentencia aquellos que encontrándose en esta situación hayan sido adoptados plenamente y de buena fe, debiendo probar por cualquier medio la desaparición forzada de sus padres.
