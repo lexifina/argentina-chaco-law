@@ -1,0 +1,1 @@
+Artículo 5°: Cuando los productos elaborados con harina de trigo adicionada se expendan en envases, éstos deberán llevar leyendas con indicación de las proporciones de los nutrientes a que se refiere la presente Ley.

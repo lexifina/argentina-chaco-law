@@ -1,0 +1,1 @@
+Artículo 3°: La harina de trigo destinada al consumo que se comercializa en el mercado nacional, será adicionada con hierro, ácido fólico, tiamina, riboflavina y niacina en las proporciones que a continuación se indican:
