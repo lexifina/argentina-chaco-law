@@ -1,0 +1,1 @@
+artículo 1° pudiera provocar o haber provocado. En lo sucesivo solo, subsisten a su respecto los derechos derivados de la consolidación. Asimismo, la cancelación de obligaciones con cualquiera de los bonos de consolidación creados por la presente ley, extinguirá definitivamente las mismas.
