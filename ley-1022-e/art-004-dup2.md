@@ -1,0 +1,1 @@
+Artículo 4º: La base imponible del impuesto es el valor de mercado de los bienes gravados. La Administración Federal de Ingresos Públicos del Ministerio de Economía y Obras y Servicios Públicos, establecerá el valor de mercado que se utilizará para la determinación del impuesto.

@@ -1,0 +1,1 @@
+Artículo 2º: Son sujetos pasivos del impuesto las personas físicas o jurídicas propietarias o poseedoras de los bienes mencionados en el artículo anterior. Cuando los titulares de dichos bienes se encuentren radicados en el exterior, se considerarán responsables del pago a quienes los posean o sean tenedores de los mismos en el territorio nacional.
