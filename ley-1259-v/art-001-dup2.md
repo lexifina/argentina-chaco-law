@@ -1,0 +1,1 @@
+Artículo 1º: Turismo accesible es el complejo de actividades originadas durante el tiempo libre, orientado al turismo y la recreación, que posibilitan la plena integración desde la óptica funcional y psicológica de las personas con movilidad y/o comunicación reducidas, obteniendo durante las mismas la satisfacción individual y social del visitante y una mejor calidad de vida.

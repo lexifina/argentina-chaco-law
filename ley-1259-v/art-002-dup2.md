@@ -1,0 +1,1 @@
+Artículo 2º: A los fines de la presente ley se entiende por persona con movilidad y/o comunicación reducidas a las comprendidas en el artículo 2° de la Ley Nº 22.431, como también aquellas que padezcan alteraciones funcionales por circunstancias transitorias, cronológicas y/o antropométricas.
