@@ -1,0 +1,2 @@
+Artículo 7°: A las personas físicas o jurídicas que desarrollen actividades comprendidas en el presente régimen, de acuerdo a las disposiciones del Título I, les será aplicable el régimen tributario general, con las modificaciones que se establecen en el presente Título. Los beneficiarios en todos los casos estarán obligados a presentar, a las autoridades competentes, la documentación por ellas requerida, de acuerdo a la reglamentación de la presente ley.
+Capítulo I. Estabilidad fiscal

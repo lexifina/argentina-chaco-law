@@ -1,0 +1,2 @@
+Artículo 9°: La Autoridad de Aplicación, emitirá un certificado con los impuestos, contribuciones y tasas aplicables a cada emprendimiento, tanto en orden nacional como provincial y municipal, vigentes al momento de la presentación, que se remitirá a las autoridades impositiva respectiva. El mismo se considerará firme, si tales autoridades no lo observan dentro de los veinte (20) días hábiles de recibido.
+Capítulo II. Impuesto al Valor Agregado

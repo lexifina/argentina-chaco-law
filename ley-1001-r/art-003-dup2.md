@@ -1,0 +1,2 @@
+Artículo 3°: Las actividades comprendidas en el régimen instituido por la presente ley son: la implantación de bosques, su mantenimiento, el manejo, el riego, la protección y la cosecha de los mismos, incluyendo las actividades de investigación y desarrollo, así como las de industrialización de la madera, cuando el conjunto de todas ellas formen parte de un emprendimiento forestal o foresto industrial integrado.
+TÍTULO II GENERALIDADES
