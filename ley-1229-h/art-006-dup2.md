@@ -1,0 +1,4 @@
+Artículo 6°: A los fines de la iniciación del trámite, el interesado deberá presentar en la entidad otorgante los reconocimientos de servicios practicados por las demás participantes, en los que deberá constar:
+a) Detalle de los períodos de servicios reconocidos; b) Total de los servicios reconocidos, expresado en años, meses y días; c) Indicación del régimen legal aplicable a dichos servicios; d) Requisitos de edad y servicios mínimos exigidos por dicho régimen; e) Detalle de las remuneraciones a fin de la determinación del haber, según corresponda.
+Sin perjuicio de lo previsto en el párrafo anterior, el afiliado podrá cumplir con los trámites allí establecidos ante cualquiera de las entidades participantes, a cuyo fin se suscribirá un convenio de cooperación administrativa.
+Determinación del derecho
