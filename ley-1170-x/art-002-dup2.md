@@ -1,0 +1,1 @@
+Artículo 2°: La provincia y el ministerio convienen en ampliar en hasta pesos diez millones cien mil ($10.100.000) adicionales la suma pactada en el convenio de préstamo del fondo para la transformación de los sectores públicos provinciales, suscripto el 2 de marzo de 1998.

@@ -1,0 +1,1 @@
+Artículo 1°: La provincia se compromete a profundizar el programa de transformación del sector público pactado en el convenio de préstamo del fondo para la transformación de los sectores públicos provinciales, suscripto el 2 de marzo de 1998, incorporando las nuevas metas y cursos de acción que se detallan en el Anexo I, que forma parte del presente protocolo adicional.
