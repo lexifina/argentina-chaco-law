@@ -1,0 +1,1 @@
+Artículo 5º: La Provincia del Chaco se obliga a realizar los mayores esfuerzos para que dentro de los ciento ochenta (180) días sea un Sistema de Inversiones Públicas, compatible con el que se emplea en el ámbito nacional.
