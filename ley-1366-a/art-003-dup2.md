@@ -1,0 +1,5 @@
+Artículo 3º: el total del personal adscripto a la policía provincial no podrá superar la cantidad de cuatrocientos (400) agentes y su adscripción estará supeditada a la conformidad de las autoridades correspondientes, siempre y cuando no afecte el normal funcionamiento de sus
+Fuente: Dirección de Información Parlamentaria Güemes 120 - 5° Piso
+T.E.: 0362 - 4441467 - Internos: 194-200 - Centrex: 41467 Email: dir.informacionparlamentaria@legislaturachaco.gov.ar
+ES COPIA DIGITAL
+áreas de origen. No se aceptaran solicitudes de agentes titulares de cargos con apdo a) - nivel director y apdo.b) - nivel jefe de dpto. Para el caso de agentes con cargos del apdo c) - nivel profesional, la autoridad máxima de cada jurisdicción, determinara la aceptación o no de la solicitud de adscripción en la policía provincial, según estime en cada caso, como conveniente o no para el sector de origen del interesado. Las vacantes que se produzcan dentro del cupo establecido serán cubiertas con agentes inscriptos en el registro único de postulantes.

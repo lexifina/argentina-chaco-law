@@ -1,0 +1,1 @@
+Artículo 2º: establecer que, la solicitud de pedido de adscripción, deberá ser autorizada por la autoridad máxima respectiva. El personal adscripto cumplirá funciones en la policía provincial, por el término de seis (6) meses, prorrogable por igual periodo, según se considere necesario.
