@@ -1,0 +1,1 @@
+Artículo 1º: Se instituye con fuerza de ley en el ámbito del Ministerio de Educación el Programa Vocacionar, destinado a promover acciones de orientación vocacional-ocupacional en los niveles de Educación General Básica (tercer ciclo) y Educación Polimodal del Sistema Educativo Nacional.

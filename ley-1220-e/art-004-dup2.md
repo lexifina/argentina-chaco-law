@@ -1,0 +1,1 @@
+Artículo 4º: Los organismos técnicos del Ministerio de Educación elaborarán, en coordinación con las organizaciones empresariales y sindicales, material informativo actualizado sobre las innovaciones tecnológicas del mercado laboral para su difusión a los organismos responsables de las jurisdicciones conjuntamente con documentación especializada de origen nacional y externo.
