@@ -1,0 +1,1 @@
+Artículo 2º: El Ministerio de Educación de la Nación se compromete, con la autoridad educativa jurisdiccional correspondiente, a hacer pública toda práctica irregular referida en el artículo 1°, dando el curso administrativo o judicial adecuado.

@@ -1,0 +1,1 @@
+Artículo 1º: Queda prohibido en los establecimientos de educación pública del país, de cualquier nivel, ciclo y modalidad, toda acción institucional que impida el inicio o continuidad del ciclo escolar a cualquier alumna embarazada o por cualquier otra circunstancia vinculada con lo anterior que produzca efecto de marginación, estigmatización o humillación.
