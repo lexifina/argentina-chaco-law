@@ -1,0 +1,1 @@
+artículo 1º que no diera cumplimiento a los requerimientos de la presente ley, y sin que hayan sido autorizadas excepciones, dará origen a la caducidad inmediata de la adjudicación, o en su defecto, a la no recepción de la obra terminada.
