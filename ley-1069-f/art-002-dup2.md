@@ -1,0 +1,1 @@
+Artículo 2º: A los efectos del artículo 1º del presente convenio, el comité ejecutivo provincial creado por Ley Provincial Nº....., seleccionará por acto administrativo dictado en consecuencia los créditos que garantizara la provincia, cuya viabilidad, desde el punto de vista técnico- económico y financiero, quedara sujeta a lo que resuelva el CFI.

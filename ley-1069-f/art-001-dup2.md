@@ -1,0 +1,1 @@
+Artículo 1º: La provincia garantizara los créditos que otorgue el CFI, destinados a fomentar la creación, permanencia y fortalecimiento de empresas radicadas o a radicarse en la provincia del chaco, dentro de todas sus líneas crediticias. Dicha garantía se efectivizara conforme se establece en el artículo 3 de este convenio.
