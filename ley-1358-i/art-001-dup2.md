@@ -1,0 +1,1 @@
+Artículo 1°: Las disposiciones de esta ley rigen para todas las personas físicas o jurídicas que procedan al desarmado de un automotor de su propiedad o de un tercero, y para aquellas cuya actividad principal, secundaria o accesoria, sea la comercialización de repuestos usados para automotores.

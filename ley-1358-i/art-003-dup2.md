@@ -1,0 +1,2 @@
+Artículo 3°: Los registros seccionales de la Dirección Nacional del Registro de la Propiedad del Automotor y de Créditos Prendarios, dependientes del Ministerio de Justicia, Seguridad y Derechos Humanos de la Nación, o el organismo que lo sustituyere en el futuro, deberán emitir un certificado de baja y desarme, donde constará:
+– Identificación del automotor (marca, modelo, patente, número de motor, número VIN y color). – Fecha de baja. – Identificación del propietario. – Identificación del desarmadero responsable. – Listado de autopartes no reutilizables.
