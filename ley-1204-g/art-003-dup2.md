@@ -1,0 +1,1 @@
+Artículo 3º: El Poder Ejecutivo, a través del Ministerio de Salud de la Nación, implementará en todas las instituciones dependientes del mismo, los eventos adecuados para la concreción del homenaje a rendirse en la fecha prevista en el artículo 1°.

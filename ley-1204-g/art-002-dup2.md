@@ -1,0 +1,1 @@
+Artículo 2º: El Ministerio de Educación de la Nación, en coincidencia con las autoridades educativas de las distintas jurisdicciones y en el ámbito del Consejo Federal de Educación, acordará la conmemoración del Día Nacional de la Medicina Social en las escuelas de la República Argentina.
