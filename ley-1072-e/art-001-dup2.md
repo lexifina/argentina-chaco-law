@@ -1,0 +1,1 @@
+Artículo 1º: La presente ley tiene por objeto la centralización del ordenamiento de datos de los bienes culturales de la Nación, en el marco de un sistema de protección colectiva de su patrimonio que a partir de la identificación y registro del mismo será denominado Registro Nacional de Bienes Culturales.
