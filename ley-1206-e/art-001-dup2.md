@@ -1,0 +1,1 @@
+Artículo 1º: Los programas sociales que el Poder Ejecutivo desarrolle con la finalidad de asistir a niños, jóvenes y adultos carenciados incorporarán actividades educacionales formales y no formales destinadas al cumplimiento de los fines, objetivos, principios y normas generales establecidos por la Ley Nº 24.195.
