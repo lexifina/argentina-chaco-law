@@ -1,0 +1,1 @@
+Artículo 3°: Se invita a los gobiernos provinciales y municipales a adoptar igual criterio al establecido en los artículos anteriores a los efectos de la extensión de los beneficios que se establezcan para las actividades industriales a las actividades productoras de software.

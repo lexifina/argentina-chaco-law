@@ -1,0 +1,1 @@
+Artículo 1°: Establécese que la actividad de producción de software debe considerarse como una actividad productiva de transformación asimilable a una actividad industrial a los efectos de la percepción de los beneficios impositivos, crediticios y de cualquier otro tipo que se fijen para la industria por parte del Gobierno nacional.

@@ -1,0 +1,1 @@
+Artículo 2°: Se instruye al Poder Ejecutivo para que en las políticas de promoción productiva vigentes o a regir en el futuro se considere el diseño, el desarrollo y la elaboración de software como una actividad productiva de transformación pasible de ser promocionada.
