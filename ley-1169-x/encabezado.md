@@ -1,0 +1,5 @@
+La Cámara de Diputados de la Provincia del Chaco
+Sanciona con fuerza de Ley Nro. 1169-X
+(Antes Ley 4960)
+CONVENIO DE SUSCRIPCIÓN DEL PROGRAMA DE EMISIÓN DE LETRAS DE
+CANCELACIÓN DE OBLIGACIONES PROVINCIALES (LECOP)
