@@ -1,0 +1,3 @@
+Artículo 2º: Las prioridades excluyentes que fija el art. 11 de la ley 19.524 serán consideradas en el siguiente orden:
+1) Los docentes que reúnan los requisitos enunciados en los incs. b), c) y d). 2) Los docentes que reúnan los requisitos enunciados en los incs. b) c) y d). 3) Los docentes que reúnan los requisitos enunciados en los incs. a) o b) y c). 4) Los docentes que reúnan el requisito enunciado en el inc. c).
+Cuando en un llamado a concurso de ingreso o de ascenso el número de vacantes supere al de aspirantes que reúnan estos requisitos, el excedente se cubrirá, en el mismo llamado, de acuerdo con las disposiciones pertinentes de los estatutos que correspondan.
