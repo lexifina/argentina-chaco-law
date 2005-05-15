@@ -1,0 +1,7 @@
+La Cámara de Diputados de la Provincia del Chaco
+Sanciona con Fuerza de Ley Nro. 1389-K
+(Antes Ley 5530)
+REGISTRO DE CONSTRUCTORES DE OBRAS
+Y PRESTADORES DE SERVICIOS PÚBLICOS
+CAPÍTULO I
+CREACIÓN-ALCANCES
