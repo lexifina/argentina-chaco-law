@@ -1,0 +1,1 @@
+Artículo 2º: Encomiéndase al señor Secretario de Culto de la Presidencia de la Nación, al señor Embajador de la República ante la Santa Sede y al señor Asesor Presidencial para la Protección de los Derechos de la Persona por Nacer, la organización de los eventos destinados a la difusión y celebración del "Día del Niño por Nacer" el próximo 25 de marzo de 1999.
