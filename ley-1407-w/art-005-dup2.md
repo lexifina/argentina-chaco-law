@@ -1,0 +1,1 @@
+Artículo 5º: La autoridad de aplicación en coordinación con el Instituto Nacional de Asuntos Indígenas y las comunidades indígenas involucradas, programará y ejecutará cursos de capacitación destinados a las comunidades indígenas, a fin de darles a conocer sus derechos y obligaciones respetando las modalidades de transmisión de información acordes a sus tradiciones y culturas.
