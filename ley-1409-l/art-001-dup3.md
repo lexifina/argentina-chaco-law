@@ -1,0 +1,1 @@
+Artículo 1°: Todo Miembro que ratifique el presente Convenio deberá adoptar medidas inmediatas y eficaces para conseguir la prohibición y la eliminación de las peores formas de trabajo infantil con carácter de urgencia.

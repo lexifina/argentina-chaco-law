@@ -1,0 +1,1 @@
+Artículo 1º: Apruébase el Convenio sobre la Prohibición de las Peores Formas de Trabajo Infantil y la Acción Inmediata para su Eliminación, 1999 (182), adoptado en la 87ª Reunión de la Conferencia Internacional del Trabajo, cuya fotocopia autenticada forma parte de la presente ley.
