@@ -1,0 +1,1 @@
+Artículo 2º: Será obligatoria la realización de los estudios que establezcan las normas emanadas por autoridad de aplicación conforme al avance de la ciencia y la tecnología para la detección temprana de la hipoacusia, a todo recién nacido, antes del tercer mes de vida.
