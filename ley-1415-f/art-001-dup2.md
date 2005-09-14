@@ -1,0 +1,1 @@
+Artículo 1º: Declárase aplicable en beneficio de las provincias, los municipios y de la Ciudad Autónoma de Buenos Aires, en relación a los fondos públicos que le pertenecen, el régimen de inembargabilidad establecido por los artículos 19 y 20 de la Ley 24.624 y sus normas complementarias, o las que en el futuro las sustituyan.
