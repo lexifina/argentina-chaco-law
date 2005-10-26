@@ -1,0 +1,1 @@
+Artículo 2º: Esta ley se aplica en toda la Nación en su conjunto, respetando los criterios federales, las diversidades regionales y articulando la educación formal y no formal, la formación general y la profesional en el marco de la educación continua y permanente.

@@ -1,0 +1,1 @@
+Artículo 1º: La presente ley tiene por objeto regular y ordenar la Educación Técnico Profesional en el nivel medio y superior no universitario del Sistema Educativo Nacional y la Formación Profesional.
