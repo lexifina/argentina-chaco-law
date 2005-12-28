@@ -1,0 +1,1 @@
+Artículo 6º: Las acciones previstas en el artículo 4º, sólo podrán realizarse cuando corresponda por los establecimientos oficiales y/o privados expresamente autorizados al efecto, de acuerdo a las disposiciones de esta Ley y a las de su reglamentación.
