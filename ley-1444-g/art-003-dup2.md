@@ -1,0 +1,1 @@
+Artículo 3º: Toda receta o prescripción médica que no cumpla con lo establecido en el primer párrafo del artículo 2º de la presente ley se tendrá por no prescrita, careciendo de valor alguno para autorizar el expendio del medicamento de que se trate.

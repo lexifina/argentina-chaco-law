@@ -1,0 +1,1 @@
+Artículo 1º: La presente ley tiene por objeto la defensa del consumidor de medicamentos y drogas farmacéuticas y su utilización como medio de diagnóstico en tecnología biomédica y todo otro producto de uso y aplicación en la medicina humana.
