@@ -1,0 +1,1 @@
+Artículo 1º: Créase el Plan de Desarrollo Sustentable y Fomento de la Producción Algodonera con aplicación en las regiones o zonas que por sus características ecológicas, cultura productiva y áreas sembradas reúnan el carácter de "especialización algodonera". La Autoridad de Aplicación identificará las regiones, provincias o zonas que reúnan dicho carácter.
