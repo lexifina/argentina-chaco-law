@@ -1,0 +1,1 @@
+Artículo 1º: Declárase el día 2 de mayo de cada año, como "Día Nacional del Crucero A.R.A. General Belgrano", en recordación de todos los tripulantes que murieron como consecuencia del ataque sufrido por ese buque de la Armada Argentina, durante el conflicto bélico del Atlántico Sur librado entre el 2 de abril y el 14 de junio de 1982.
