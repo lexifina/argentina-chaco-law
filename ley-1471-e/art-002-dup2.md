@@ -1,0 +1,1 @@
+Artículo 2°: Anualmente, en la fecha citada la Secretaría de Estado de Agricultura y Ganadería organizará actos con relación a la misma y en todos los establecimientos educacionales dependientes del Ministerio de Educación y Justicia de la Nación, se dictarán clases tendientes a destacar la importancia de la conservación del suelo.
