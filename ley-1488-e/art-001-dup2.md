@@ -1,0 +1,1 @@
+Artículo 1º: Declarar "Día Nacional de la Conciencia Ambiental" el 27 de septiembre de cada año en memoria de las personas fallecidas como consecuencia del escape de gas cianhídrico ocurrido en la ciudad de Avellaneda, provincia de Buenos Aires, el 27 de setiembre de 1993.

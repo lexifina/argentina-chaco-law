@@ -1,0 +1,1 @@
+Artículo 2º: A partir de la vigencia de la presente ley, todos los años en dicha fecha se recordará, en los establecimientos educativos primarios y secundarios, los derechos y deberes relacionados con el ambiente mencionado en la Constitución Nacional.
