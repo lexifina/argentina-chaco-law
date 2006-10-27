@@ -1,0 +1,1 @@
+ARTICULO 1º — La presente ley garantiza a toda persona que padece epilepsia el pleno ejercicio de sus derechos, proscribe todo acto que la discrimine y dispone especiales medidas de protección que requiere su condición de tal.
