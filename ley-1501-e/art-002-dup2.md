@@ -1,0 +1,1 @@
+Artículo 2º: La violación a lo establecido por la presente ley facultará a los Ministerios de Educación y/o Secretarías Educativas, cualquiera sea su jurisdicción, a que, a través del organismo encargado del reconocimiento y control de los establecimientos privados, intimen al cese de la difusión engañosa y al desarrollo de los cursos o carreras.

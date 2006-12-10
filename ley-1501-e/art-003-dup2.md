@@ -1,0 +1,1 @@
+Artículo 3º: Si dicha violación continuara, los organismos mencionados precedentemente deberán iniciar las acciones sancionatorias previstas en la ley 24.240 de defensa del consumidor y/o el artículo 172 del Código Penal, y/o el artículo 42 de la Constitución Nacional.

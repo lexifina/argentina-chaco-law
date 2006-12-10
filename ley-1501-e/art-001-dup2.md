@@ -1,0 +1,7 @@
+Artículo 1º: Establécese que toda persona y/o institución de propiedad privada destinada a la enseñanza, que dicte cursos presenciales, semipresenciales o a distancia, o cualquier otra forma de prestación de los mismos, deberá en la difusión de sus servicios, cumplir con los siguientes requisitos.
+a) Tratándose de establecimientos con o sin reconocimiento oficial, si los
+cursos impartidos no cumplen con los planes y programas aprobados por el organismo educativo oficial correspondiente, no podrán incluir la mención de títulos con igual denominación a los que se expidieron o se expiden oficialmente. b) Deberán asimismo, hacer constar en toda su publicidad, en forma destacada,
+que el título y/o certificado que extienden no tiene carácter oficial. c) En caso de que no contaran con el reconocimiento oficial, deberán brindar al
+interesado información veraz, por medio de acta notificativa, en la que deberá constar: 1) Clase de título y/o certificado que se entrega. 2) Que no habilita para ejercer la docencia oficial o privada, o cualquier otra profesión cuya carrera o curso sea dictada por establecimientos de enseñanza de Nivel Inicial, Educación General Básica, Nivel Polimodal o Nivel Superior y que estén reconocidos oficialmente, o para continuar estudios superiores.
+d) En caso de que el establecimiento contara con reconocimiento oficial,
+deberá en cada carrera y/o curso que publicite, mencionar el número de resolución respectiva por el cual fueron aprobados, así como código y características del establecimiento.
