@@ -1,0 +1,1 @@
+Artículo 4º: Invítase a las Provincias, a la Ciudad Autónoma de Buenos Aires y a los Municipios provinciales a adherir a las disposiciones de este decreto y a participar en los estudios y acciones necesarios para la formulación del Plan Nacional contra la Discriminación.

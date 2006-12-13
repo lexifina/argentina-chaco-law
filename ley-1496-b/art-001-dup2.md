@@ -1,0 +1,1 @@
+Artículo 1º: Apruébase el documento titulado “Hacia un plan nacional contra la discriminación. La discriminación en Argentina. Diagnóstico y propuestas” que, como Anexo, forma parte del presente decreto y que constituirá los lineamientos estratégicos del Plan Nacional contra la Discriminación.
