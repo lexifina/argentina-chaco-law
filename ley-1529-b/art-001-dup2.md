@@ -1,0 +1,1 @@
+Artículo 1 : Apruébase la Convención de las Naciones Unidas Contra la Corrupción, adoptada en Nueva York –Estados Unidos de América– el 31 de octubre de 2003, que consta de setenta y un (71) artículos, cuya fotocopia autenticada forma parte de la presente ley.
