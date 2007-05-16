@@ -1,0 +1,1 @@
+Artículo 2º: Las autoridades sanitarias de cada jurisdicción harán cumplir las normas de esta Ley y sus disposiciones reglamentarias en toda la República. A los efectos de contribuir al efectivo cumplimiento de dichas normas y disposiciones, la autoridad sanitaria nacional podrá concurrir en cualquier punto del país para velar y fiscalizar la observancia de las mismas.

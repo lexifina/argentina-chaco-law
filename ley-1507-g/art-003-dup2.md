@@ -1,0 +1,1 @@
+Artículo 3º: En cumplimiento de esta Ley sólo podrán utilizarse las vacunas que estén expresamente aprobadas por la autoridad sanitaria nacional, según lo establecen las normas legales, actualmente en vigencia sobre la elaboración, importación y comercialización de drogas y medicamentos de uso humano.
