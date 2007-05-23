@@ -1,0 +1,1 @@
+Artículo 1°: Declárese el día 24 de abril de todos los años como “Día de acción por la tolerancia y el respeto entre los pueblos”, en conmemoración del genocidio de que fue víctima el pueblo armenio y con el espíritu de que su memoria sea una lección permanente sobre los pasos del presente y las metas de nuestro futuro.

@@ -1,0 +1,1 @@
+Artículo 2°: Autorícese a todos los empleados y funcionarios de organismos públicos de origen armenio a disponer libremente los días 24 de abril de todos los años para poder asistir y participar de las actividades que se realicen en conmemoración de la tragedia que afectó a su comunidad.
