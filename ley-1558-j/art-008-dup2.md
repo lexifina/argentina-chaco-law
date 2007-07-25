@@ -1,0 +1,1 @@
+Artículo 8°: Hasta tanto entre en función la entidad creada por el presente decreto, el Ministerio de Ejército–Comando General del Interior (Comando General de Comunicaciones del Interior) continuará atendiendo las actividades colombófilas civiles.

@@ -1,0 +1,1 @@
+Artículo 6°: El Ministerio del Ejército por intermedio del Comando General del Interior (Comando General de Comunicaciones del Interior) ejercerá la fiscalización y supervisión, que para las actividades colombófilas determina la Ley 12.913 (Decreto 17.160/43).

@@ -1,0 +1,1 @@
+Artículo 7°: El Ministerio de Ejército, anualmente incluirá en su presupuesto, la suma cuyo monto, e imputación determinará, como subvención del Estado al fomento de la actividad colombófila. De las inversiones que de esta subvención realice la Federación Colombófila Argentina, deberá dar cuenta a las autoridades mencionadas en el artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 5°: El Ministerio de Ejército, con la colaboración de los aficionados colombófilos civiles, confeccionará y propondrá al Poder Ejecutivo, el Estatuto a regir a la Federación Colombófila Argentina.
