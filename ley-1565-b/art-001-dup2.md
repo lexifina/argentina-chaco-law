@@ -1,0 +1,1 @@
+Artículo 1°: Apruébase el Protocolo Facultativo de la Convención contra la Tortura y Otros Tratos o Penas Crueles, Inhumanos o Degradantes, adoptado en Nueva York –Estados Unidos de América– el 18 de diciembre de 2002, que consta de treinta y siete (37) artículos cuya fotocopia autenticada forma parte de la presente ley.

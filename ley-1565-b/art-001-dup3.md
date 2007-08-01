@@ -1,0 +1,1 @@
+Artículo 1°: El objetivo del presente Protocolo es establecer un sistema de visitas periódicas a cargo de órganos internacionales y nacionales independientes a los lugares en que se encuentren personas privadas de su libertad, con el fin de prevenir la tortura y otros tratos o penas crueles, inhumanas o degradantes.
