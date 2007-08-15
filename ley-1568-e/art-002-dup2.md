@@ -1,0 +1,9 @@
+Artículo 2°: Comuníquese al Poder Ejecutivo.
+Dada en la Sala de Sesiones del Congreso Argentino, en Buenos Aires, a los dos días del mes
+de agosto del año dos mil seis.
+Registrado bajo el Nº 26.125
+Alberto Balestrini, José J. B. Pampuro, Enrique Hidalgo, Juan H. Estrada.
+Fuente: Dirección de Información Parlamentaria Güemes 120 - 5° Piso
+T.E.: 0362 - 4441467 - Internos: 194-200 - Centrex: 41467
+Email: dir.informacionparlamentaria@legislaturachaco.gov.ar
+ES COPIA DIGITAL
