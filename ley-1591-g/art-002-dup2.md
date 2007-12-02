@@ -1,0 +1,1 @@
+Artículo 2°: También se incluirán otras anomalías metabólicas genéticas y/o congénitas inaparentes al momento del nacimiento, si la necesidad de la pesquisa es científicamente justificada y existen razones de política sanitaria.
