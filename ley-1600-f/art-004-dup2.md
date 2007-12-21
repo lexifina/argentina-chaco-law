@@ -1,0 +1,1 @@
+Artículo 4°: Los sujetos que encuadren en la condición de pequeño contribuyente, de acuerdo con lo establecido en el artículo 2°, podrán optar por adherir al Régimen Simplificado para Pequeños Contribuyentes (RS), debiendo tributar el impuesto integrado que, para cada caso, se establece en el artículo 11.
