@@ -1,0 +1,1 @@
+Artículo 1º: Declárase de interés nacional y asígnase carácter prioritario, dentro de la política nacional de salud del Ministerio de Salud, y en el marco de la estrategia de Atención Primaria de la Salud, a la prevención y control de todas las formas de transmisión de la enfermedad de Chagas, hasta su definitiva erradicación de todo el territorio nacional.
