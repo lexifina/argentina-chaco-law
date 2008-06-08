@@ -1,0 +1,6 @@
+Artículo 4º: Las actuaciones, documentos de trabajo, anotaciones y todo otro material
+contenido en las fichas y registros de casos ingresados al centro de mediación en el que actúe el
+mediador o su oficina, como así toda comunicación efectuada durante o en conexión con la
+mediación a su cargo y que se relacione con la controversia, sea al Centro, a mediador o a
+alguna de las partes o a cualquier persona interviniente en la sesión de mediación serán
+confidenciales.

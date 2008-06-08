@@ -1,0 +1,4 @@
+Artículo 2º: Al comienzo de la mediación, el mediador deberá informar a las partes sobre la
+naturaleza, características y reglas a las que se sujetará el proceso de mediación, sentido de
+función y papel que desempeña el mediador, asegurándose la comprensión de los participantes
+y su consentimiento al respecto.

@@ -1,0 +1,7 @@
+Artículo 12: El procedimiento de mediación pertenece a las partes que delegan su
+conducción en el mediador. El mediador no tiene interés particular alguno en el resultado o en
+los términos del acuerdo y sus consecuencias para las partes, pero deberá estar satisfecho de
+que el convenio al que se arribe con su intervención no contraríe la integridad del proceso.
+Llegado este caso hará saber a las partes su inquietud y no podrá jamás violar la regla de la
+confidencialidad a estos fines. Deberá asegurarse de que los participantes comprendan los
+términos del acuerdo y den libre conformidad al mismo antes de la suscripción.
