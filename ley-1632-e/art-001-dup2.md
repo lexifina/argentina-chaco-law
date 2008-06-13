@@ -1,0 +1,1 @@
+Artículo 1º: Es objeto de la presente ley la preservación, protección y tutela del Patrimonio Arqueológico y Paleontológico como parte integrante del Patrimonio Cultural de la Nación y el aprovechamiento científico y cultural del mismo.
