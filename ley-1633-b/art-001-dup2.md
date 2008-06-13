@@ -1,0 +1,1 @@
+Artículo 1º: Apruébase la Convención Internacional para la Protección de todas las personas contra las desapariciones forzadas, adoptada por la Asamblea General de las Naciones Unidas en Nueva York –Estados Unidos de América– el 20 de diciembre de 2006, que consta de cuarenta y cinco (45) artículos, cuya fotocopia autenticada, en idioma castellano, forma parte de la presente Ley.
