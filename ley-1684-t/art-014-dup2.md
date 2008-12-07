@@ -1,0 +1,15 @@
+Artículo 14: Requisitos:
+a) La autoridad emisora debe requerir del solicitante:
+Fuente: Dirección de Información Parlamentaria Güemes 120 - 5° Piso
+T.E.: 0362 - 4441467 - Internos: 194-200 - Centrex: 41467 Email: dir.informacionparlamentaria@legislaturachaco.gov.ar
+ES COPIA DIGITAL
+1. Saber leer y para los conductores profesionales también escribir. 2. Una declaración jurada sobre el padecimiento de afecciones a las que se refiere expresamente la reglamentación. 3. Asistencia obligatoria a un curso teórico-práctico de educación para la seguridad vial, en una escuela de conducir pública o privada habilitada, cuya duración y contenidos serán determinados, auditados y homologados por la Agencia Nacional de Seguridad Vial. 4. Un examen médico psicofísico que comprenderá: una constancia de aptitud física; de aptitud visual; de aptitud auditiva y de aptitud psíquica. 5. Un examen teórico de conocimientos sobre educación y ética ciudadana, conducción, señalamiento y legislación. 6. Un examen teórico práctico sobre detección de fallas de los elementos de seguridad del vehículo y de las funciones del equipamiento e instrumental. 7. Un examen práctico de idoneidad conductiva. Las personas daltónicas, con visión monocular o sordas y demás personas con capacidades limitadas que puedan conducir con las adaptaciones pertinentes, de satisfacer los demás requisitos podrán obtener la licencia habilitante específica asimismo, para la obtención de la licencia profesional a conceder a minusválidos, se requerirá poseer la habilitación para conducir vehículos particulares con una antigüedad de DOS (2) años. 8. La Agencia Nacional de Seguridad Vial determinará, homologará y auditará los contenidos de los distintos exámenes señalados en los incisos 4, 5, 6 y 7.
+b) La Nación, a través del organismo nacional competente, exigirá
+a los conductores de vehículos de transporte de carácter
+interjurisdiccional además de lo establecido en el inciso a) del
+presente artículo, todo aquel requisito que sea inherente al
+servicio específico de que se trate.
+Antes de otorgar una licencia se deberá requerir al Registro
+Nacional de Antecedentes de Tránsito informes de infracciones
+y de sanciones penales en ocasión del tránsito, más los informes
+específicos para la categoría solicitada.

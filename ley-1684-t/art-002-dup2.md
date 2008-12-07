@@ -1,0 +1,1 @@
+Artículo 2º: La Agencia Nacional de Seguridad Vial tendrá su domicilio en la Capital de la República y podrá constituir delegaciones en el interior del país que dependerán en forma directa de la misma.

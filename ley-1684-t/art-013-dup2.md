@@ -1,0 +1,48 @@
+Artículo 13: Características. Todo conductor será titular de una Licencia Nacional de Conducir ajustada a lo siguiente:
+Fuente: Dirección de Información Parlamentaria Güemes 120 - 5° Piso
+T.E.: 0362 - 4441467 - Internos: 194-200 - Centrex: 41467 Email: dir.informacionparlamentaria@legislaturachaco.gov.ar
+ES COPIA DIGITAL
+a) La Licencia Nacional de Conducir otorgada por municipalidades
+u organismos provinciales autorizadas por la Agencia Nacional
+de Seguridad Vial habilitará a conducir en todas las calles y
+caminos de la República, como así también en territorios
+extranjeros, en los casos en que se hubiera suscripto el
+correspondiente convenio, previa intervención de la Agencia
+Nacional de Seguridad Vial, conforme lo establezca la
+reglamentación; b) La licencia nacional deberá extenderse conforme a un modelo
+unificado que responderá a estándares de seguridad, técnicos y de
+diseño que establezca la Agencia Nacional de Seguridad Vial,
+que se individualizará por la mención expresa, en campo
+predeterminado, de la autoridad local emisora y el número de
+documento nacional de identidad del requirente; c) Las licencias podrán otorgarse con una validez de hasta CINCO (
+5) años, debiendo en cada renovación aprobar el examen
+psicofísico. De registrar el titular antecedentes por infracciones
+graves o en cantidad superior a la que se determine por vía de la
+reglamentación, se deberán revalidar los exámenes teórico-
+prácticos; d) Los conductores que obtengan su licencia por primera vez,
+deberán conducir durante los primeros seis meses llevando bien
+visible, tanto adelante como detrás del vehículo que conduce, el
+distintivo que identifique su condición de principiante; e) A partir de la edad de SESENTA y CINCO (65) años se reducirá
+la vigencia de la Licencia Nacional de Conducir. La autoridad
+expedidora determinará, según los casos, los períodos de vigencia
+de las mismas, dentro de los parámetros que establezca la
+reglamentación; f) La emisión de la Licencia Nacional de Conducir y sus
+renovaciones se realizarán asignando a cada uno de sus titulares
+una cantidad fija y uniforme de puntos, a través de un sistema
+cuyas condiciones y características se determinarán en la
+reglamentación; g) Todo titular de una licencia deberá acatar los controles y órdenes
+que imparta la autoridad de tránsito en el ejercicio de sus
+funciones; h) La Nación será competente en el otorgamiento de licencias para
+conducir vehículos del servicio de transporte de pasajeros y carga
+de carácter interjurisdiccional, pudiendo delegar por convenio tal
+facultad en las provincias y la Ciudad Autónoma de Buenos
+Aires.
+El otorgamiento de licencias de conductor en infracción a las
+normas de esta ley y su reglamentación, permitirá a la Agencia
+Nacional de Seguridad Vial, por intermedio de la Autoridad de
+Aplicación y Comprobación correspondiente, restringir la
+circulación en jurisdicción nacional del titular de la licencia
+otorgada en infracción, y a la vez, hará pasible al o a los
+funcionarios que las extiendan, de las responsabilidades
+contempladas en el artículo 1112 del Código Civil , sin perjuicio
+de las sanciones penales y administrativas que correspondan.
