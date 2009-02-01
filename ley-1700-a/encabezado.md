@@ -1,0 +1,4 @@
+La Cámara de Diputados de la Provincia del Chaco
+Sanciona con Fuerza de Ley Nro. 1700-A
+(Antes Ley 6277)
+ADDENDA AL CONVENIO DE PARTICIPACIÓN DEL “PERMER” (PROYECTO DE ENERGIAS RENOVABLES EN MERCADOS RURALES)
