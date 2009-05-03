@@ -1,0 +1,4 @@
+La Cámara de Diputados de la Provincia del Chaco
+Sanciona con Fuerza de Ley Nro. 1716-X
+(Antes Ley 6307)
+CONVENIO PARA EL PROYECTO EJECUTIVO DEL EDIFICIO “SEDE DE LA CÁMARA DE DIPUTADOS DE LA PROVINCIA DEL CHACO”
