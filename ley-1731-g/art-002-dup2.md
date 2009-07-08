@@ -1,0 +1,1 @@
+Artículo 2º: Si el resultado de la detección fuere positivo, se establece la obligatoriedad del tratamiento correspondiente con la modalidad y tiempo previsto por la ciencia médica, a fin del control de la bacteria de referencia.

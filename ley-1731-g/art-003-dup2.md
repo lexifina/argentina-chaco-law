@@ -1,0 +1,1 @@
+Artículo 3º: Deberá considerarse el examen bacteriológico y la profilaxis como prestación de rutina tanto por parte de establecimientos de atención de la salud públicos o privados, como por obras sociales, seguros médicos, prepagas y todo otro organismo financiador de prestaciones de la salud.

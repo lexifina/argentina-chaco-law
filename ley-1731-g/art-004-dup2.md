@@ -1,0 +1,4 @@
+Artículo 4º: El Ministerio de Salud de la Nación, como autoridad de aplicación de la presente Ley, en coordinación con las jurisdicciones provinciales y del Gobierno de la Ciudad, dispondrá de los programas de investigación de prevalencia a nivel provincial y/o local, necesarios para la formación de los agentes de salud, acerca de la sepsis bacteriana temprana del recién nacido por estreptococo Grupo B Agalactiae, estrategias de prevención, y obligaciones de los médicos y centros de salud, a fin de que se proceda de forma uniforme a la aplicación del examen bacteriológico de detección y la profilaxis, en todo el país.
+Fuente: Dirección de Información Parlamentaria Güemes 120 - 5° Piso
+T.E.: 0362 - 4441467 - Internos: 194-200 - Centrex: 41467 Email: dir.informacionparlamentaria@legislaturachaco.gov.ar
+ES COPIA DIGITAL
