@@ -1,0 +1,1 @@
+Articulo 4º: Se ajustarán a las disposiciones de esta Ley y sus reglamentos, la caza, hostigamiento, captura o destrucción de sus crías, huevos, nidos y guaridas, tenencia, posesión, tránsito, aprovechamiento, comercio y transformación de la fauna silvestre y sus productos o subproductos.

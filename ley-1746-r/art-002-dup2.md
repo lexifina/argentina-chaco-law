@@ -1,0 +1,1 @@
+Articulo 2º: En la reglamentación y aplicación de esta ley las autoridades deberán respetar el equilibrio entre los diversos beneficios económicos, culturales, agropecuarios, recreativos y estéticos que la fauna silvestre aporta al hombre, pero dando en todos los casos la debida prelación a la conservación de la misma como criterio rector de los actos a otorgarse.

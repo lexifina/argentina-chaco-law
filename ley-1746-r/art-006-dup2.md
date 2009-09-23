@@ -1,0 +1,1 @@
+Articulo 6º: Queda prohibido dar libertad a animales silvestres en cautiverio, cualquiera fuese la especie o los fines perseguidos, sin la previa conformidad de la autoridad de aplicación, nacional o provincial según corresponda.
