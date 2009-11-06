@@ -1,0 +1,1 @@
+Artículo 2º: Se entenderá por Centro de Desarrollo Infantil a los espacios de atención integral de niños y niñas de hasta CUATRO (4) años de edad, que además realicen acciones para instalar, en los ámbitos familiar y comunitario, capacidades que favorezcan la promoción y protección de los derechos de niños y niñas.
