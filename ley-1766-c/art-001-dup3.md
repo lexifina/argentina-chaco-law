@@ -1,0 +1,1 @@
+Artículo 1º: Gozarán de los beneficios de esta ley los ocupantes que, con causa lícita, acrediten la posesión pública, pacífica y continua durante tres años con anterioridad al 1º de enero de 2009, respecto de inmuebles edificados urbanos que tengan como destino principal el de casa habitación única y permanente, y reúnan las características previstas en la reglamentación.
