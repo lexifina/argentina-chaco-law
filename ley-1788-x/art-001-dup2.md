@@ -1,0 +1,1 @@
+Artículo 1°: Objeto. Créase el Consejo Federal Legislativo de Salud (COFELESA) como organismo deliberativo de origen político que tendrá por objeto la articulación y promoción de políticas legislativas comunes en materia de salud, en todo el territorio nacional.
