@@ -1,0 +1,1 @@
+Artículo 1°: El desarrollo de obras de infraestructura energética que atiendan a la expansión del sistema de generación, transporte y/o distribución de los servicios de gas natural, gas licuado y/o electricidad, constituye un objetivo prioritario y de interés del Estado nacional.

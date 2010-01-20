@@ -1,0 +1,1 @@
+Artículo 2°: Créanse cargos específicos para el desarrollo de las obras mencionadas en el artículo precedente como aporte a los fondos de los fideicomisos constituidos o a constituirse para el desarrollo de obras de infraestructura de los servicios de gas y electricidad.

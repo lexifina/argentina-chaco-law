@@ -1,0 +1,1 @@
+Artículo 4°: Facúltase al Poder Ejecutivo nacional a fijar el valor de los cargos específicos y a ajustarlos, en la medida que resulte necesario, a fin de atender el repago de las inversiones y cualquier otra erogación que se devengue con motivo de la ejecución de las obras aludidas en el artículo 1° de la presente ley.
