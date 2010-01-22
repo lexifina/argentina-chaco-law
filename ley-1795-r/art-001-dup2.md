@@ -1,0 +1,1 @@
+Artículo 1º: Objeto. Declárase de interés nacional la generación de energía eléctrica a partir del uso de fuentes de energía renovables con destino a la prestación de servicio público como así también la investigación para el desarrollo tecnológico y fabricación de equipos con esa finalidad.

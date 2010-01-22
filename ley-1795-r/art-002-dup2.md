@@ -1,0 +1,1 @@
+Artículo 2º: Alcance. Se establece como objetivo del presente régimen lograr una contribución de las fuentes de energía renovables hasta alcanzar el ocho por ciento (8%) del consumo de energía eléctrica nacional, en el plazo de diez (10) años a partir de la puesta en vigencia del presente régimen.
