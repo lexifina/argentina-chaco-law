@@ -1,0 +1,5 @@
+Artículo 2º: A los fines del acceso a los beneficios previstos por la Ley Nº 26.360 de Promoción de Inversiones en Bienes de Capital y Obras de Infraestructura se considerarán
+Fuente: Dirección de Información Parlamentaria Güemes 120 - 5° Piso
+T.E.: 0362 - 4441467 - Internos: 194-200 - Centrex: 41467 Email: dir.informacionparlamentaria@legislaturachaco.gov.ar
+ES COPIA DIGITAL
+actividades industriales aquellas clasificables como Industria Manufacturera con categoría de tabulación "D" del Clasificador Nacional de Actividades Económicas (CLANAE). También quedarán comprendidos todos aquellos procesos practicados a las materias primas mediante la utilización intensiva de bienes de capital referidos a su acondicionamiento y en la medida en que fuesen la etapa inmediata anterior a una actividad manufacturera realizada en el país, y las que expresamente determine la Autoridad de Aplicación mediante acto administrativo fundado por considerarlas actividades industriales no clasificadas en la categoría mencionada en el párrafo precedente.

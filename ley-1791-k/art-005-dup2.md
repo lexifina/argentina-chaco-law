@@ -1,0 +1,1 @@
+Artículo 5º: Podrán acceder al estímulo fiscal, los sujetos a los que hace referencia el Artículo 2º de la Ley Nº 26.360 de Promoción de Inversiones en Bienes de Capital y Obras de Infraestructura, conforme lo establecido por el Artículo 7º de la misma, asumiendo los riesgos inherentes a la inversión.

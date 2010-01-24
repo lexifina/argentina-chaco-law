@@ -1,0 +1,2 @@
+Artículo 4º: Invítase a los Gobiernos Provinciales y Municipales a brindar asistencia técnica a pequeñas y medianas empresas en lo referente a la presentación de las solicitudes, así como a colaborar en la búsqueda de la información necesaria en cumplimiento de los extremos formales previstos por el régimen instituido por la Ley Nº 26.360 de Promoción de Inversiones en Bienes de Capital y Obras de Infraestructura.
+TÍTULO II DE LOS PROYECTOS DE INFRAESTRUCTURA
