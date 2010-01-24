@@ -1,0 +1,1 @@
+Artículo 1º: Durante los ejercicios 2009 y 2010 se excluirán de los artículos 10 y 19 de la Ley 25.917 aquellas erogaciones que se hayan destinado a promover la actividad económica, a sostener el nivel de empleo y dar cobertura a la emergencia sanitaria y a la asistencia social.
