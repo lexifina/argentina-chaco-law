@@ -1,0 +1,1 @@
+Artículo 7º: Se entenderá que una situación es de carácter permanente, cuando la producción o capacidad de producción de la zona afectada por un factor adverso no resulte posible de recuperación con la aplicación de técnicas ordinarias.

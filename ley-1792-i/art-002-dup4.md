@@ -1,0 +1,1 @@
+Artículo 2º: El Consejo Consultivo de Emergencia Agropecuaria y la Comisión Nacional de Emergencias y Desastres Agropecuarios tendrán su sede permanente en el Ministerio de Agricultura, Ganaderia y Pesca, pudiendo constituirse en el lugar del país que las circunstancias así lo requieran.

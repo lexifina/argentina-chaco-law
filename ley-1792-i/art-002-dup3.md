@@ -1,0 +1,1 @@
+Artículo 2º: Establécese que cada vez que en el texto de la Ley Nº 26.509 se refiera a los entonces Ministerio de Producción y Secretaría de Agricultura, Ganadería, Pesca y Alimentos, deberá entenderse dicha referencia, al actual Ministerio de Agricultura, Ganadería y Pesca.

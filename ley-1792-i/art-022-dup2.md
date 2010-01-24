@@ -1,0 +1,1 @@
+Artículo 22: A los efectos de la aplicación de los incisos a) y d) del artículo que se reglamenta, la Comisión Nacional de Emergencias y Desastres Agropecuarios, determinará la fecha de inicio y finalización de los ciclos productivos por actividad y zona productiva.

@@ -1,0 +1,8 @@
+Artículo 3º: La Comisión Nacional de Emergencias y Desastres Agropecuarios será presidida por el Ministro de Agricultura, Ganadería y Pesca o por aquél en quien delegue dicha facultad y contará con una Secretaría Técnica Ejecutiva. Dicha Secretaría tendrá las siguientes funciones:
+a) Implementar las acciones encomendadas por la Comisión. b) Convocar las reuniones de la Comisión. c) Recibir los pedidos de declaración y prórroga de las emergencias
+agropecuarias y estados de desastre que efectúen los gobiernos provinciales y analizarlos. d) Aconsejar las medidas que deban adoptarse tanto en aspectos de prevención
+como de mitigación de daños. e) Recabar de las provincias y de los organismos competentes la
+documentación e información necesaria para evaluar las situaciones de emergencia y/o desastre agropecuario. f) Inspeccionar las áreas afectadas para verificar la magnitud de los daños
+producidos. g) Participar en las reuniones de las comisiones provinciales de emergencia
+agropecuaria, con el objeto de colaborar en la evaluación de las situaciones de emergencia y/o desastre y en la formulación de los informes de situación para presentar ante la Comisión. h) Observar la evolución de las emergencias declaradas. i) Supervisar el cumplimiento de las medidas que se adopten. j) Mantener actualizado el Registro Único de Productores Agropecuarios.
+El Ministro de Agricultura, Ganadería y Pesca, determinará la unidad orgánica que ejercerá la Secretaría Técnica Ejecutiva y la dotará de los recursos humanos, técnicos, administrativos y presupuestarios necesarios para su efectiva gestión, de conformidad con la normativa vigente.

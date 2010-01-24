@@ -1,0 +1,1 @@
+Artículo 20: Cuando los riesgos y/o daños pudieren estar cubiertos o amparados bajo el régimen de seguros, el Ministerio de Agricultura, Ganadería y Pesca establecerá las situaciones en las que los productores declarados en situación de emergencia y/o desastre agropecuario gozarán de los beneficios de la ley que se reglamenta.

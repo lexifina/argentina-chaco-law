@@ -1,0 +1,1 @@
+Artículo 4º: Créase el Registro Único de Productores Agropecuarios, a fin de brindar al Sistema referido en el artículo 3º, información estandarizada con el objeto de individualizar a los beneficiarios directos contemplados en el artículo 20 y concordantes de la Ley Nº 26.509.
