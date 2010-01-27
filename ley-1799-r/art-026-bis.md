@@ -1,0 +1,1 @@
+Artículo 26 BIS: Financiamiento. El gasto que demande la aplicación de la presente ley se imputará a las partidas presupuestarias de la Secretaría de Desarrollo Territorial y Ambiente, según su naturaleza.
