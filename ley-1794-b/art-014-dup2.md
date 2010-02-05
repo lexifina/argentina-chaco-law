@@ -1,0 +1,5 @@
+Artículo 14: Libertad y seguridad de la persona. 1. Los Estados Partes asegurarán que las personas con discapacidad, en igualdad de condiciones con las demás:
+a) Disfruten del derecho a la libertad y seguridad de la persona; b) No se vean privadas de su libertad ilegal o arbitrariamente y que cualquier privación de libertad sea de conformidad con la ley, y que la existencia de una discapacidad no justifique en ningún caso una privación de la libertad. 2. Los Estados Partes asegurarán que las personas con discapacidad que se vean privadas de su libertad en razón de un proceso tengan, en igualdad de condiciones con las demás, derecho a garantías de conformidad con el derecho internacional de los derechos humanos y a ser tratadas de conformidad con los objetivos y principios de la presente Convención, incluida la realización de ajustes razonables.
+Fuente: Dirección de Información Parlamentaria Güemes 120 - 5° Piso
+T.E.: 0362 - 4441467 - Internos: 194-200 - Centrex: 41467 Email: dir.informacionparlamentaria@legislaturachaco.gov.ar
+ES COPIA DIGITAL

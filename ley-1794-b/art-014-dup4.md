@@ -1,0 +1,5 @@
+Artículo 14: Prestaciones preventivas. La madre y el niño tendrán garantizados desde el momento de la concepción, los controles, atención y prevención adecuados para su óptimo desarrollo físico-psíquico y social. En caso de existir además, factores de riesgo, se deberán extremar los esfuerzos en relación con los controles, asistencia, tratamientos y exámenes complementarios necesarios, para evitar patología o en su defecto detectarla tempranamente.
+Fuente: Dirección de Información Parlamentaria Güemes 120 - 5° Piso
+T.E.: 0362 - 4441467 - Internos: 194-200 - Centrex: 41467 Email: dir.informacionparlamentaria@legislaturachaco.gov.ar
+ES COPIA DIGITAL
+Si se detecta patología discapacitante en la madre o el feto, durante el embarazo o en el recién nacido en el período perinatal, se pondrán en marcha además, los tratamientos necesarios para evitar discapacidad o compensarla, a través de una adecuada estimulación y/u otros tratamientos que se puedan aplicar. En todos los casos, se deberá contemplar el apoyo psicológico adecuado del grupo familiar.

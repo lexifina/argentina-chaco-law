@@ -1,0 +1,1 @@
+Artículo 20: Estimulación temprana. Estimulación temprana es el proceso terapéutico- educativo que pretende promover y favorecer el desarrollo armónico de las diferentes etapas evolutivas del niño con discapacidad.

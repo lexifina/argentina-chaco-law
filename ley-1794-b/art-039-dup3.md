@@ -1,0 +1,5 @@
+Artículo 39: Será obligación de los entes que prestan cobertura social, el reconocimiento de los siguientes servicios a favor de las personas con discapacidad:
+a) Atención a cargo de especialistas que no pertenezcan a su cuerpo de profesionales y deban intervenir imprescindiblemente por las características específicas de la patología, conforme así o determine las acciones de evaluación y orientación estipuladas en el artículo 11 de la presente ley; b) Aquellos estudios de diagnóstico y de control que no estén contemplados dentro de los servicios que brinden los entes obligados en la presente ley, conforme así lo determinen las acciones de evaluación y orientación estipuladas en el artículo 11 de la presente ley; c) Diagnóstico, orientación y asesoramiento preventivo para los miembros del grupo familiar de pacientes que presentan patologías de carácter genético-hereditario.
+Fuente: Dirección de Información Parlamentaria Güemes 120 - 5° Piso
+T.E.: 0362 - 4441467 - Internos: 194-200 - Centrex: 41467 Email: dir.informacionparlamentaria@legislaturachaco.gov.ar
+ES COPIA DIGITAL
