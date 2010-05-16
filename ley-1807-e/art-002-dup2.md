@@ -1,0 +1,2 @@
+Artículo 2º: Créase el Programa Nacional de Educación y Prevención sobre las Adicciones y el Consumo Indebido de Drogas en el ámbito del Ministerio de Educación, con responsabilidades concurrentes del Ministerio de Salud, la Secretaría Nacional de Niñez, Adolescencia y Familia, en coordinación con la SEDRONAR o el organismo que tenga a su cargo las competencias en materia de prevención de las adicciones.
+TÍTULO II OBJETIVO

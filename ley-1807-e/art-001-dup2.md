@@ -1,0 +1,1 @@
+Artículo 1º: Toda persona tiene derecho a formarse para tener una vida digna vivida en libertad y es en la familia y en el ámbito educativo que se deben promover los valores, actitudes y hábitos de vida que permitan desarrollar una verdadera educación para la salud y la vida.
