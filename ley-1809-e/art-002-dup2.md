@@ -1,0 +1,1 @@
+Artículo 2º: Encomiéndase al Poder Ejecutivo, a través del Ministerio de Educación y en el marco del Consejo Federal de Educación, arbitre las medidas necesarias para la realización de actividades alusivas a la figura de Monseñor Angelelli en los establecimientos educativos de todas las jurisdicciones del país, en sus distintos niveles.
