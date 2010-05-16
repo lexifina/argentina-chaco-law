@@ -1,0 +1,1 @@
+Artículo 1º: Declárase de interés nacional la atención médica, la investigación clínica y epidemiológica, la capacitación profesional en la detección temprana, diagnóstico y tratamiento de la enfermedad celíaca, su difusión y el acceso a los alimentos libres de gluten.
