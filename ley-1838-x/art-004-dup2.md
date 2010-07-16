@@ -1,0 +1,1 @@
+Artículo 4°: El Gobierno Nacional, en virtud de las disposiciones contenidas en el artículo 5° del Decreto N° 660/10 atenderá, en las condiciones originales, las deudas de la provincia desde la vigencia del presente Convenio.

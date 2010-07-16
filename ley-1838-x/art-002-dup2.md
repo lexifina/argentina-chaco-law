@@ -1,0 +1,2 @@
+Artículo 2°: La provincia acepta a los recursos provenientes del Fondo de Aportes del Tesoro Nacional, credo por el Artículo 5° de la Ley N° 23.548 de conformidad con el procedimiento
+establecido en el artículo 3° del Decreto N° 660 del 10de mayo de 2010, monto asciende a la suma de pesos. quinientos ochenta y cinco millones seiscientos ochenta y dos mil novecientos treinta y nueve con trece centavos ($ 585.682.939,13) con destino a cancelar parcialmente la deuda detallada en el artículo 1° del presente.

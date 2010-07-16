@@ -1,0 +1,5 @@
+La Cámara de Diputados de la Provincia del Chaco
+Sanciona con fuerza de Ley Nro. 1838-X
+(Antes Ley 6579)
+CONVENIO CON EL ESTADO NACIONAL PROGRAMA FEDERAL DE
+DESENDEUDAMIENTO DE LAS PROVINCIAS ARGENTINAS
