@@ -1,0 +1,1 @@
+Artículo 2º: De conformidad con lo dispuesto en el artículo anterior, en el mes de octubre de cada año, el Ministerio de Salud, en coordinación con otros organismos nacionales correspondientes y con las autoridades sanitarias de cada jurisdicción, desarrollará diversas actividades públicas de educación y concientización, orientadas a la prevención del Cáncer de Mama.
