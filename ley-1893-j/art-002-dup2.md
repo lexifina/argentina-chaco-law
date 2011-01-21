@@ -1,0 +1,1 @@
+Artículo 2º: La presente ley será de aplicación a los eventos y espectáculos musicales, artísticos y de entretenimiento en general que se celebren o realicen en lugares de entretenimiento, aun cuando éstos se encuentren situados en espacios abiertos, en la vía pública, en zonas marítimo-terrestres o portuarias o en cualquier otra zona de dominio público.
