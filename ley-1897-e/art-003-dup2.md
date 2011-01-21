@@ -1,0 +1,1 @@
+Artículo 3º: La formulación y la coordinación de los planes de Política Educativa en zona y áreas de frontera y el control y evaluación de su ejecución corresponde al Ministerio de Cultura y Educación.
