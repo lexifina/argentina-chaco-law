@@ -1,0 +1,1 @@
+Artículo 5º: Las normas y requisitos de accesibilidad serán las determinadas por la Oficina Nacional de Tecnologías de la Información (ONTI), debiendo actualizarse regularmente dentro del marco de las obligaciones que surgen de la Convención sobre los Derechos de las Personas con Discapacidad (Ley 26.378).

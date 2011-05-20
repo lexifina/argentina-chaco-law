@@ -1,0 +1,1 @@
+Artículo 3º: Se entiende por accesibilidad a los efectos de esta ley a la posibilidad de que la información de la página Web, puede ser comprendida y consultada por personas con discapacidad y por usuarios que posean diversas configuraciones en su equipamiento o en sus programas.

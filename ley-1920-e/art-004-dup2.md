@@ -1,0 +1,1 @@
+Artículo 4º: La autoridad de aplicación de la presente ley será designada por el Poder Ejecutivo nacional en la reglamentación, en cumplimiento de las obligaciones generales determinadas por el artículo 4º de la Convención sobre los Derechos de las Personas con Discapacidad (Ley 26.378).
