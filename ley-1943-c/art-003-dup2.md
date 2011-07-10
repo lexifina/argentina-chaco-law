@@ -1,0 +1,1 @@
+Artículo 3º: Las provincias, previa firma y convenios con el Ministerio de Justicia, podrán disponer de una terminal de enlace informático con el registro, a los efectos de acceder a la información contenida en el mismo.

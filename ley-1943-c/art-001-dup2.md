@@ -1,0 +1,1 @@
+Artículo 1º: Créase el Registro Único de aspirantes a Guarda con Fines Adoptivos, con asiento en el Ministerio de Justicia de la Nación, el que coordinará sus actividades, a efectos del contralor y procesamiento del material.
