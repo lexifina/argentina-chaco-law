@@ -1,0 +1,1 @@
+Artículo 4º bis: Otórgase a partir del l de octubre de 2018 a los agentes comprendidos en esta ley, una bonificación por riesgo de vida consistente en el setenta y cinco por ciento (75%) de la suma de los importes correspondientes a sueldo básico, compensación profesional y adicional remunerativo
