@@ -1,0 +1,1 @@
+Artículo 2º: A los efectos de la presente Ley se consideran EPF a aquellas cuya prevalencia en la población es igual o inferior a una en dos mil (1 en 2000) personas, referida a la situación epidemiológica nacional.
