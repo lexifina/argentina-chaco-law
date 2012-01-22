@@ -1,0 +1,1 @@
+Artículo 2º: Invítase a adherir al Poder Judicial, Poder Legislativo, a provincias, municipios, legislaturas provinciales y a la Ciudad Autónoma de Buenos Aires, a proceder del mismo modo en sus respectivas jurisdicciones y en sus organismos.
