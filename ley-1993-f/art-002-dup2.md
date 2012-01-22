@@ -1,0 +1,1 @@
+Artículo 2°: Sólo podrá solicitar y ser titular de la misma un solo agrupamiento constituido por productores y/o prestadores de servicios inscriptos en el Registro Nacional de Efectores de Desarrollo Local y Economía Social creado por el Decreto del Poder Ejecutivo nacional N° 189/2004.
