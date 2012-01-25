@@ -1,0 +1,1 @@
+Artículo 4º: Son considerados laboratorios de producción pública a los fines de la presente ley, los laboratorios del Estado nacional, provincial, municipal y de la Ciudad Autónoma de Buenos Aires, de las fuerzas atinadas y de las instituciones universitarias de gestión estatal.

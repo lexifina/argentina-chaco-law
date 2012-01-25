@@ -1,0 +1,1 @@
+Artículo 1º: Declárase de interés nacional la investigación y producción pública de medicamentos, materias primas para la producción de medicamentos, vacunas y productos médicos entendiendo a los mismos como bienes sociales.

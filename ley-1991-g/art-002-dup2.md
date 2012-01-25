@@ -1,0 +1,1 @@
+Artículo 2º: Es objeto de la presente ley promover la accesibilidad de Medicamentos, vacunas y productos médicos y propiciar el desarrollo científico y tecnológico a través de laboratorios de producción pública.
