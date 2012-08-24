@@ -1,0 +1,2 @@
+artículo 1º a menores de dieciocho (18) años, a mujeres en estado gestante y de lactancia, como también su intervención en cualquier tipo de tareas relacionadas con la formulación, fabricación, envasado, transporte, carga y descarga, almacenamiento, ventas, mezcla, dosificación, aplicación, eliminación de desechos y limpieza de equipos aplicadores.
+CAPÍTULO VIII CAPACITACIÓN, PARTICIPACIÓN Y ASESORAMIENTO
