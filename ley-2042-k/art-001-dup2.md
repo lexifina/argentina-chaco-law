@@ -1,0 +1,1 @@
+Artículo 1º: Constitúyese el Fondo Fiduciario Público denominado Programa Crédito Argentino del Bicentenario para la Vivienda Única Familiar (Pro.Cre.Ar), cuyo objeto es facilitar el acceso a la vivienda propia de la población y la generación de empleo como políticas de desarrollo económico y social.

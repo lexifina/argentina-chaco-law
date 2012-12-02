@@ -1,0 +1,5 @@
+Artículo 5º: Los bienes fideicomitidos se destinarán:
+a) A la construcción de viviendas y desarrollo integral de proyectos urbanísticos
+e inmobiliarios para el acceso a la vivienda familiar, única y permanente de conformidad con las pautas que se establezcan en el contrato de fideicomiso y las que determine el Comité Ejecutivo, con el objeto de mejorar y facilitar el acceso a la vivienda de sectores socioeconómicos bajos y medios de la población, principalmente; b) Al otorgamiento de créditos hipotecarios para la adquisición de las viviendas
+a las que se refiere el inciso anterior, o para la construcción de viviendas familiares, únicas y permanentes de conformidad con las pautas que se establezcan en el contrato de fideicomiso y las que determine el Comité Ejecutivo con el objeto de mejorar y facilitar el acceso a la vivienda de sectores socioeconómicos bajos y medios de la población, principalmente; c) Otros destinos relacionados al acceso a la vivienda que determine el Comité
+Ejecutivo.
