@@ -1,0 +1,10 @@
+Artículo 11 BIS: De las Audiencias de Conciliación Virtuales: entiéndase por audiencias de conciliación virtual, las que se celebrarán a través de los medios y procedimientos electrónicos de comunicación según lo reglamente la Autoridad de Aplicación y que aseguren la confidencialidad del procedimiento y la identidad de las partes. Deberán reunir los siguientes recaudos:
+a) A instancia del consumidor o usuario al momento de la denuncia, siendo de
+carácter vinculante para la otra arte.
+Fuente: Dirección de Información Parlamentaria Güemes 120 - 5° Piso
+T.E.: 0362 - 4441467 - Internos: 194-200 - Centres: 41467 Email: dir.informacionparlamentaria@legislaturachaco.gov.ar
+ES COPIA DIGITAL
+El Consumidor podrá optar al momento de la denuncia, con la mera manifestación en la solicitud, de que la instancia conciliatoria se realice por Medios Electrónicos conforme las condiciones que se adecuen mejor al consumidor y siendo de carácter obligatorio para el denunciado; b) La autoridad de aplicación convocará a las partes a audiencia en el mismo
+plazo que el previsto en el artículo 11; c) En el supuesto que la instancia conciliatoria por medios electrónicos
+fracasare, se otorgará mi plazo de cinco (5) días hábiles en favor del denunciado para que conteste reclamo, oponga excepciones si las tuviere, y ofrezca la prueba de que intente valerse. Este derecho no es oponible en caso de incomparecencia injustificada del denunciado; La sanción por incomparencia injustificada hará presumir la exactitud de los hechos lícitos pertinentes o denunciados, sin perjuicio de la multa establecida en el inc. g) del artículo 11 de la presente ley; d) La autoridad de aplicación tendrá la facultad de ordenar y citar de oficio a
+las partes Audiencia Conciliación Virtual, en la cual serán aplicables todo lo dispuesto en el artículo precedente, salvo oposición manifiesta del Consumidor. El Consumidor goza del derecho a oponerse, por razones fundadas, a la realización de audiencia por medios tecnológicos.

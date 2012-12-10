@@ -1,0 +1,2 @@
+Artículo 46 BIS: A los fines del cumplimiento del artículo anterior, la autoridad de aplicación destinará los ingresos a los que refiere el artículo 33 para la infraestructura material técnica y logística a los municipios, que en el marco de la descentralización prevista en el artículo 46 hubieren conformado sus oficinas de atención y tramitación de denuncias y reclamos.
+La autoridad de aplicación reglamentará los criterios de distribución, conforme con los parámetros dispuesto por el artículo 46.
