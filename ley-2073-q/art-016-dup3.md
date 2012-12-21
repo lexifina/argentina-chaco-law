@@ -1,0 +1,1 @@
+Artículo 16: De los subregistros electorales por distrito. En cada secretaría electoral se organizará el subregistro de los electores de distrito, el cual contendrá los datos suministrados por medios informáticos por la Cámara Nacional Electoral, de acuerdo con los datos que consten en el Registro Nacional de Electores.

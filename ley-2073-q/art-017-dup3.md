@@ -1,0 +1,10 @@
+Artículo 17: Organización del Registro Nacional de Electores. El Registro Nacional de Electores será organizado por la Cámara Nacional Electoral, quien será la autoridad competente para disponer la organización, confección y actualización de los datos que lo componen. Dicho registro contendrá los datos de todos los electores del país y debe ser organizado por distrito.
+Las modalidades de actualización que establezca comprenderán la modificación del asiento registral de los electores, por la admisión de reclamos interpuestos por ellos o por las constancias obtenidas de tareas de fiscalización, de lo cual informará al Registro Nacional de las Personas con la constancia documental que acredite la modificación.
+Fuente: Dirección de Información Parlamentaria Güemes 120 - 5º Piso
+- T.E.: 03722-441467 -internos: 194 - 141 – 145-167- Centrex 41467
+Email: dir.informacionparlamentaria@legislaturachaco.gov.ar
+ES COPIA DIGITAL
+El Registro Nacional de las Personas deberá remitir al Registro Nacional de Electores, en forma electrónica los datos que correspondan a los electores y futuros electores. Sin perjuicio de ello, debe remitir periódicamente las constancias documentales que acrediten cada asiento informático, las que quedarán en custodia en forma única y centralizada, en la Cámara Nacional Electoral.
+Estas constancias se utilizarán como medio de prueba supletorio en caso de controversia sobre los asientos registrales informáticos.
+La Cámara Nacional Electoral podrá reglamentar las modalidades bajo las cuales el Registro Nacional de las Personas deberá remitir la información, así como también los mecanismos adecuados para su actualización y fiscalización permanente, conforme lo previsto en la presente ley, y de acuerdo a la posibilidad de contar con nuevas tecnologías que puedan mejorar el sistema de registro de electores.
+Queda garantizado a las provincias y a la Ciudad Autónoma de Buenos Aires el acceso libre y permanente a la información contenida en el Registro Nacional de Electores, a los efectos electorales.

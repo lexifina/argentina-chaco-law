@@ -1,0 +1,6 @@
+Artículo 64 ter: Publicidad en medios de comunicación. Queda prohibida la emisión y publicación de avisos publicitarios en medios televisivos, radiales y gráficos con el fin de promover la captación del sufragio para candidatos a cargos públicos electivos antes de los veinticinco (25) días previos a la fecha fijada para el comicio.
+La prohibición comprenderá la propaganda paga de las imágenes y de los nombres de los candidatos a cargos electivos nacionales, ejecutivos y legislativos, en los medios masivos de comunicación (televisión, radio e Internet), vía pública, medios gráficos, telefonía móvil y fija, publicidad estática en espectáculos deportivos o de cualquier naturaleza, así como también la publicidad alusiva a los partidos políticos y a sus acciones, antes de los veinticinco (25) días previos a la fecha fijada para el comicio. El juzgado federal con competencia electoral podrá disponer el cese automático del aviso cursado cuando éste estuviese fuera de los tiempos y atribuciones regulados por la ley.
+Fuente: Dirección de Información Parlamentaria Güemes 120 - 5º Piso
+- T.E.: 03722-441467 -internos: 194 - 141 – 145-167- Centrex 41467
+Email: dir.informacionparlamentaria@legislaturachaco.gov.ar
+ES COPIA DIGITAL

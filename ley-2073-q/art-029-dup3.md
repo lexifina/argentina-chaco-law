@@ -1,0 +1,1 @@
+ARTICULO 29. — Tanto la solicitud de revocatoria como los recursos interpuestos contra las resoluciones que rechacen la oficialización de listas serán concedidos con efecto suspensivo.

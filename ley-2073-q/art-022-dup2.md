@@ -1,0 +1,3 @@
+ARTICULO 22. — Los precandidatos que se presenten en las elecciones primarias sólo pueden hacerlo en las de una (1) sola agrupación política, y para una (1) sola categoría de cargos electivos.
+CAPITULO II
+Electores

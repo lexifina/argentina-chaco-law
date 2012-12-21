@@ -1,0 +1,1 @@
+Artículo 75: Designación de las autoridades. El juzgado federal con competencia electoral nombrará a los presidentes y suplentes para cada mesa, con una antelación no menor de treinta (30) días a la fecha de las elecciones primarias debiendo ratificar tal designación para las elecciones generales.

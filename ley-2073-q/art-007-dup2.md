@@ -1,0 +1,12 @@
+Artículo 7º: Para que a una agrupación política se le pueda reconocer su personería jurídico- política, en forma provisoria, debe solicitarlo ante el juez competente, cumpliendo con los siguientes requisitos:
+a) Acta de fundación y constitución, acompañada de constancias, que acrediten la adhesión de un número de electores no inferior al cuatro por mil (4‰) del total de los inscritos en el registro de electores del distrito correspondiente, hasta el máximo de un millón (1.000.000). Este acuerdo de voluntades se complementará con un documento en el que conste nombre, domicilio y matrícula de los firmantes;
+b) Nombre adoptado por la asamblea de fundación y constitución;
+c) Declaración de principios y programa o bases de acción política, sancionados por la asamblea de fundación y constitución;
+d) Carta orgánica sancionada por la asamblea de fundación y constitución;
+e) Acta de designación de las autoridades promotoras;
+f) Domicilio partidario y acta de designación de los apoderados.
+Fuente: Dirección de Información Parlamentaria Güemes 120 - 5º Piso
+- T.E.: 03722-441467 -internos: 194 - 141 – 145-167- Centrex 41467
+Email: dir.informacionparlamentaria@legislaturachaco.gov.ar
+ES COPIA DIGITAL
+Durante la vigencia del reconocimiento provisorio, los partidos políticos serán considerados en formación. No pueden presentar candidaturas a cargos electivos en elecciones primarias ni en elecciones nacionales, ni tienen derecho a aportes públicos ordinarios ni extraordinarios.

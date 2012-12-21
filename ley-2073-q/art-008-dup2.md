@@ -1,0 +1,13 @@
+Artículo 8º: Los partidos de distrito reconocidos en cinco (5) o más distritos con el mismo nombre, declaración de principios, programa o bases de acción política, carta orgánica, pueden solicitar su reconocimiento como partidos de orden nacional ante el juzgado federal con competencia electoral del distrito de su fundación. Obtenido el reconocimiento, el partido deberá inscribirse en el registro correspondiente, ante los jueces federales con
+Fuente: Dirección de Información Parlamentaria Güemes 120 - 5º Piso
+- T.E.: 03722-441467 -internos: 194 - 141 – 145-167- Centrex 41467
+Email: dir.informacionparlamentaria@legislaturachaco.gov.ar
+ES COPIA DIGITAL
+competencia electoral de los distritos donde decidiere actuar, a cuyo efecto, además de lo preceptuado en el artículo 7º y 7º bis deberá cumplir con los siguientes requisitos:
+a) Testimonio de la resolución que le reconoce personería jurídico-política;
+b) Declaración de principios, programa o bases de acción política y carta orgánica nacional;
+c) Acta de designación y elección de las autoridades nacionales del partido y de las autoridades de distrito;
+d) Domicilio partidario central y acta de designación de los apoderados.
+Para conservar la personería jurídico-política, los partidos nacionales deben mantener en forma permanente el número mínimo de distritos establecido con personería jurídico- política vigente.
+El Ministerio Público Fiscal verificará el cumplimiento del presente requisito, en el segundo mes de cada año, e impulsará la declaración de caducidad de personerías jurídicas partidarias cuando corresponda.
+Previo a la declaración de caducidad el juez competente intimará el cumplimiento del requisito indicado, por el plazo improrrogable de noventa (90) días, bajo apercibimiento de dar de baja al partido del Registro así como también su nombre y sigla.

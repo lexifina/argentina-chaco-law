@@ -1,0 +1,2 @@
+Artículo 49: Gastos en publicidad. Quedan expresamente prohibidos los gastos de publicidad de campaña por cuenta de terceros.
+Para la contratación de la publicidad electoral que no se encuentre alcanzada por la prohibición del artículo 43 será excluyente la participación de los responsables económico- financieros de las agrupaciones políticas, debiendo refrendar las órdenes respectivas en el informe final.

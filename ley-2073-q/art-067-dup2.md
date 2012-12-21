@@ -1,0 +1,7 @@
+Artículo 67: El incumplimiento en tiempo y forma de la presentación de la información prevista en los artículos 22, 23 y 58 facultará al juez a aplicar una multa por presentación extemporánea equivalente al cero coma dos por ciento (0,2%), por cada día de demora del total de fondos públicos que le correspondieren a la agrupación política en la próxima distribución del fondo partidario permanente.
+Transcurridos noventa (90) días, del vencimiento del plazo de que se trate, el juez interviniente podrá disponer la suspensión cautelar de todos los aportes públicos notificando su resolución a la Dirección Nacional Electoral del Ministerio del Interior.
+Fuente: Dirección de Información Parlamentaria Güemes 120 - 5º Piso
+- T.E.: 03722-441467 -internos: 194 - 141 – 145-167- Centrex 41467
+Email: dir.informacionparlamentaria@legislaturachaco.gov.ar
+ES COPIA DIGITAL
+El incumplimiento en tiempo y forma de la presentación del informe previsto en el artículo 54 facultará al juez a aplicar una multa por presentación extemporánea equivalente al cero coma cero dos por ciento (0,02%) por cada día de demora del total de fondos públicos que le correspondieren a la agrupación política en la próxima distribución del fondo partidario permanente, hasta un máximo de nueve (9) días antes del comicio.

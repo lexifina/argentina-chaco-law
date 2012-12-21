@@ -1,0 +1,9 @@
+Artículo 44 ter: La Cámara Nacional Electoral creará un Registro de Empresas de Encuestas y Sondeos de Opinión. Aquellas empresas que deseen hacer públicas por cualquier medio encuestas de opinión, o prestar servicios a las agrupaciones políticas, o a terceros, durante la campaña electoral por cualquier medio de comunicación, deberán inscribirse en el mismo.
+El registro deberá abrirse con una anterioridad no menor a los treinta (30) días antes de la fecha de oficialización de las listas de candidatos. Dicha inscripción deberá renovarse ante cada acto eleccionario.
+Durante la duración de la campaña electoral, y ante cada trabajo realizado para una agrupación política, o para terceros, las empresas deberán presentar ante el registro del distrito correspondiente, un informe donde se individualice el trabajo realizado, quién realizó la contratación, el monto facturado por trabajo realizado, un detalle técnico sobre la metodología científica utilizada, el tipo de encuesta realizada, el tamaño y características de la muestra utilizada, procedimiento de selección de los entrevistados, el error estadístico aplicable y la fecha del trabajo de campo.
+Dicho informe será publicado en el sitio web oficial de la justicia nacional electoral para su público acceso por la ciudadanía.
+Aquellas empresas que no se encuentran durante el período inscritas en el Registro, no podrán difundir por ningún medio, trabajos de sondeo o encuestas de opinión, durante el período de campaña electoral.
+Fuente: Dirección de Información Parlamentaria Güemes 120 - 5º Piso
+- T.E.: 03722-441467 -internos: 194 - 141 – 145-167- Centrex 41467
+Email: dir.informacionparlamentaria@legislaturachaco.gov.ar
+ES COPIA DIGITAL

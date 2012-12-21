@@ -1,0 +1,4 @@
+ARTICULO 24. — Los electores deben emitir un (1) solo voto por cada categoría de cargos a elegir, pudiendo optar por distintas listas de diferentes agrupaciones políticas.
+Se dejará constancia en el documento cívico de conformidad con el artículo 95 del Código Electoral Nacional.
+CAPITULO III
+Presentación y oficialización de listas

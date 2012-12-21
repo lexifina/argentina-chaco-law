@@ -1,0 +1,1 @@
+Artículo 72: Para la designación de las autoridades de mesa se dará prioridad a los ciudadanos que resulten de una selección aleatoria por medios informáticos en la cual se debe tener en cuenta su grado de instrucción y edad, a los electores que hayan sido capacitados a tal efecto y a continuación a los inscriptos en el Registro Público de Postulantes a Autoridades de Mesa.
