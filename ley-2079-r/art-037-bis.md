@@ -1,0 +1,1 @@
+Artículo 37 Bis: En el caso que se constate la utilización de cadenas en las infracciones codificadas como B.1) del artículo 6° de la ley 2079-R (Antes Ley 7153) “Desmonte sin permiso”, se utilizará como base para la aplicación de multa de hasta diez (10) veces del valor vigente por cada hectárea afectada.
