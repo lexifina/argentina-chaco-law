@@ -1,0 +1,1 @@
+Artículo 1º: Institúyase el día 15 de febrero de cada año como Día Nacional para la Lucha contra el Cáncer Infantil en el ámbito de la República Argentina, con el objeto de concientizar a la población sobre aspectos y efectos de esta enfermedad.
