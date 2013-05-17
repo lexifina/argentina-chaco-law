@@ -1,0 +1,1 @@
+Artículo 3º: Autoridad de aplicación. Será autoridad de aplicación el Ministerio de Educación en acuerdo con el Consejo Federal de Educación y en coordinación con el Ministerio de Salud en acuerdo con el Consejo Federal de Salud.

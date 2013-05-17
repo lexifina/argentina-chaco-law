@@ -1,0 +1,1 @@
+Artículo 1º: Objeto. El Ministerio de Educación, en acuerdo con el Consejo Federal de Educación, deberá promover acciones para la toma de conciencia sobre la relevancia social de difundir y aprender las Técnicas de Reanimación Cardiopulmonar (RCP) básicas con carácter voluntario, altruista, desinteresado y solidario.
