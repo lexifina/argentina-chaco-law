@@ -1,0 +1,1 @@
+Artículo 2º: Autorízase a izar la Bandera de la Paz, que como Anexo se adjunta a la presente ley, en los edificios públicos pertenecientes a los tres (3) poderes del Estado nacional, de las provincias y de la Ciudad Autónoma de Buenos Aires, y en los establecimientos escolares públicos y privados de todo el territorio nacional.

@@ -1,0 +1,1 @@
+Artículo 3º: Las universidades nacionales y las escuelas, de gestión pública o privada, de cualquier nivel educativo, procurarán incorporar la temática de promoción de la paz en su quehacer docente, así como realizar actividades destinadas a conmemorar el “Día Internacional de la Paz” cada 21 de septiembre.
