@@ -1,0 +1,1 @@
+Artículo 1º: Objeto. Toda actividad desarrollada por las diferentes ramas audiovisuales que se encuentren comprendidas en el artículo 57 de la ley 17.741 de Fomento de la Actividad Cinematográfica Nacional (t.o. 2001), es considerada como una actividad productiva de transformación asimilable a una actividad industrial.
