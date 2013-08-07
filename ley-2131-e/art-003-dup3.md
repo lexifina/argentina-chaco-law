@@ -1,0 +1,1 @@
+Artículo 3°: Disponer para cada uno de los parajes donde se hubieren perpetrado hechos de violencia institucional una señalización que lo determine como tal, acompañada de una leyenda alusiva de repudio de los hechos que allí sucedieron.

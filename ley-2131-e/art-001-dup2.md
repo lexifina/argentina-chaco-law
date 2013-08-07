@@ -1,0 +1,1 @@
+Artículo 1°: Institúyese el 8 de mayo como “Día Nacional de la Lucha Contra la Violencia Institucional” con el objeto de recordar las graves violaciones a los derechos humanos ocasionadas por las fuerzas de seguridad, promoviendo la adopción de políticas públicas en materia de seguridad respetuosas de los derechos humanos.

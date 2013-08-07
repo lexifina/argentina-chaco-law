@@ -1,0 +1,1 @@
+Artículo 4 : Facúltase al Poder Ejecutivo nacional para disponer en los distintos ámbitos de su competencia la implementación de actividades específicas, en el mismo sentido que el dispuesto para la comunidad educativa en el artículo 2° de la presente ley.
