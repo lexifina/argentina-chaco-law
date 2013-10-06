@@ -1,0 +1,2 @@
+Artículo 1°: Los Servicios de Policía Adicional, tienen por objeto prestar función especial de seguridad respecto de personas y bienes, de entidades civiles y comerciales, públicas o privadas.
+Estos servicios serán prestados por la Policía de la Provincia en todo su territorio, excepto en aquellos lugares sujetos exclusivamente a la jurisdicción militar, federal o a otra policía de seguridad, pudiendo accederse a los servicios en casos especiales.
