@@ -1,0 +1,2 @@
+Artículo 16 BIS: Los integrantes de la Comisión Directiva de la Asociación de Consorcios de Ladrilleros, elegidos a través de los mecanismos fijados por la presente ley, serán a su vez delegados pro tempore y ad honorem de la misma frente a la autoridad de aplicación, al solo efecto de fiscalizar y formular de manera no vinculante, dinamismos vinculados a los consorcios y la autoridad de aplicación.
+AUTORIDAD DE APLICACIÓN

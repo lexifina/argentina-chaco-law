@@ -1,0 +1,1 @@
+Artículo 10 TER: La autoridad de aplicación emitirá por cada año dos (2) informes semestrales sobre la situación y movimientos del Fondo Específico, los que deberán ser concordantes con los movimientos de fondos consignados en los informes emitidos a pedido de parte por la Asociación de Ladrilleros de la Provincia del Chaco.
