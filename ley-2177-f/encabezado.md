@@ -1,0 +1,6 @@
+La Cámara de Diputados de la Provincia del Chaco
+Sanciona con fuerza de Ley Nro. 2177-F
+(Antes Ley 7348)
+TÍTULO I DISPOSICIONES GENERALES
+CAPÍTULO I DEL PRESUPUESTO DE GASTOS Y RECURSOS
+DE LA ADMINISTRACIÓN PÚBLICA
