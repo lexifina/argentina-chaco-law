@@ -1,0 +1,1 @@
+artículo 3º para cada alumno, considerando parámetros oficiales relativos a la evolución general de los costos de construcción, a fin de que el Fondo mantenga su participación relativa en el presupuesto global de gastos del Ministerio de Educación, Cultura, Ciencia y Tecnología.
