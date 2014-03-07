@@ -1,0 +1,5 @@
+Artículo 4°: Objetivos. Son objetivos del Sistema Federal de Manejo del Fuego, los siguientes:
+a) Generales.
+I) Proteger y preservar el medio ambiente del daño generado por los incendios; II) Velar por la seguridad de la población en general y de las personas afectadas al combate de incendios; III) Establecer mecanismos para una eficiente intervención del Estado en las situaciones que involucren o demanden acciones y operaciones de prevención, presupresión y combate de incendios que aseguren el adecuado manejo del fuego.
+b) Específicos.
+I) Establecer mecanismos para un eficiente manejo del fuego en defensa del ambiente; II) Coordinar y asistir técnica y operativamente a los organismos nacionales, provinciales y de la Ciudad Autónoma de Buenos Aires, competentes en las tareas del manejo del fuego, con la finalidad de promover una organización federal eficiente y capaz de dar respuesta adecuada en los distintos niveles de contingencia, propiciando ámbitos regionales de actuación; III) Promover la concientización de la población acerca del impacto de los usos del fuego, fomentando el cambio de los hábitos perjudiciales para el ambiente.
