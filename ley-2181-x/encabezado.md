@@ -1,0 +1,5 @@
+La Cámara de Diputados de la Provincia del Chaco
+Sanciona con fuerza de Ley Nro. 2181-X
+(Antes Ley 7356)
+CONVENIO CON EL ESTADO NACIONAL: PROGRAMA FEDERAL DE DESENDEUDAMIENTO DE LAS PROVINCIAS
+ARGENTINAS
