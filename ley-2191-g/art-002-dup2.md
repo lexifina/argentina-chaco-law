@@ -1,0 +1,1 @@
+Artículo 2°: La diabetes no será causal de impedimento para el ingreso laboral, tanto en el ámbito público, como en el privado. El desconocimiento de este derecho será considerado acto discriminatorio en los términos de la Ley Nº 23.592.
