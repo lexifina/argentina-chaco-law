@@ -1,0 +1,1 @@
+Artículo 2°: Establécese el 27 de junio como día de descanso para los empleados de la administración pública nacional, en los que no se prestarán tareas, asimilándose el mismo a los feriados nacionales a todos los efectos legales.
