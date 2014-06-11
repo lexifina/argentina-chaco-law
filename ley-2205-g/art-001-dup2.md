@@ -1,0 +1,1 @@
+Artículo 1°: Institúyese en el territorio de la Nación el día 19 de agosto de cada año como Día Nacional de la Lucha contra el Síndrome Urémico Hemolítico en homenaje al Dr. Carlos Arturo Gianantonio, precursor en la lucha contra esta enfermedad.
