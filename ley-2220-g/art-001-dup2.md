@@ -1,0 +1,1 @@
+Artículo 1°: Objeto. La presente ley tiene por objeto la promoción y la concientización pública acerca de la importancia de la lactancia materna y de las prácticas óptimas de nutrición segura para lactantes y niños de hasta dos (2) años.
