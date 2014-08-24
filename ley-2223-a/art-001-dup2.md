@@ -1,0 +1,1 @@
+Artículo 1°: Créase el Consejo Federal de Legisladores Comunales de la República Argentina, organización que a partir de la sanción de la presente ley contará con personería jurídica para adquirir derechos y contraer obligaciones, actuando como entidad pública no estatal.
