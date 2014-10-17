@@ -1,0 +1,1 @@
+Artículo 1º: El objeto de la presente ley es crear un régimen de protección integral para las personas que hayan recibido un trasplante inscripto en el Registro Nacional de Procuración y Trasplante o se encuentren en lista de espera para trasplantes del Sistema Nacional de Procuración y Trasplante de la República Argentina (SINTRA) y con residencia permanente en el país.

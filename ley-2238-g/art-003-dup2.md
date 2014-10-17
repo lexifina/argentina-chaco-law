@@ -1,0 +1,1 @@
+Artículo 3°: La autoridad de aplicación de la presente ley es el Ministerio de Salud, el que debe coordinar su accionar con las jurisdicciones y con los organismos nacionales competentes en razón de la materia. En las respectivas jurisdicciones será autoridad de aplicación la que determinen las provincias y la Ciudad Autónoma de Buenos Aires.
