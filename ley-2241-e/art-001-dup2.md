@@ -1,0 +1,1 @@
+Artículo 1º: La presente ley tiene por objeto crear el Sistema Nacional de Bibliotecas Escolares y Unidades de Información Educativas en el marco de lo prescripto en la Ley de Educación Nacional 26.206.
