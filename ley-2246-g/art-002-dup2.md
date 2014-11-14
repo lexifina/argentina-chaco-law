@@ -1,0 +1,1 @@
+Artículo 2°: El Poder Ejecutivo nacional a través de los organismos pertinentes y junto a las organizaciones de la Sociedad Civil que trabajan por la Salud Mental, implementarán en la semana previa al 10 de octubre campañas de concientización y prevención de la Salud Mental.

@@ -1,0 +1,1 @@
+Artículo 1°: Institúyese el 10 de octubre de cada año como Día Nacional de la Salud Mental, el que se conmemorará en todo el territorio de la República Argentina, en concordancia con el Día Mundial de la Salud Mental.
