@@ -1,0 +1,1 @@
+Artículo 6°: Los productores e importadores de productos alimenticios deben acreditar para su comercialización y publicidad en el país las condiciones establecidas conforme lo determina la presente ley.
