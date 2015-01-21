@@ -1,0 +1,1 @@
+Artículo 2º: El Ministerio de Educación de la Nación, en el marco del Consejo Federal de Educación, promoverá la incorporación de la fecha mencionada en el artículo precedente en el calendario escolar e implementará actividades tendientes a difundir entre los alumnos el conocimiento y significado de la conmemoración.
