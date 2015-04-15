@@ -1,0 +1,1 @@
+ARTICULO 1° — Institúyese el día 8 de enero de cada año como el Día Nacional de la Memoria en el Deporte en conmemoración del atleta Miguel Sánchez, desaparecido en 1978 durante la última dictadura cívico-militar.

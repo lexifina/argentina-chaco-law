@@ -1,0 +1,1 @@
+ARTICULO 2° — La Secretaría de Deporte de la Nación y las autoridades correspondientes de las distintas jurisdicciones en el marco del Consejo Nacional del Deporte acordarán la inclusión en los respectivos calendarios deportivos de una prueba pedestre, bajo la modalidad que se determine, denominada “Carrera de Miguel”.
