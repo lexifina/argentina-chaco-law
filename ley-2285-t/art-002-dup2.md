@@ -1,0 +1,1 @@
+ARTÍCULO 2° — Lo establecido en el artículo anterior será de aplicación al transporte público de pasajeros que se desplaza por calles, avenidas, rutas, autovías, autopistas, al realizado por ferrocarril, al transporte fluvial, lacustre, marítimo y aéreo.

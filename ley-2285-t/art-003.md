@@ -1,0 +1,1 @@
+ARTÍCULO 3° — Todas las estaciones de llegada, partida o escala del medio de transporte del que se trate, deberán también disponer de un espacio visible y destacado a efectos de inscribir la misma leyenda del artículo primero y según el formato y en la forma que establezca la reglamentación.
