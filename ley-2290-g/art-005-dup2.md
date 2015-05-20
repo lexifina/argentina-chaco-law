@@ -1,0 +1,1 @@
+ARTICULO 5º — Será autoridad de aplicación de la presente ley el Ministerio de Salud de la Nación en el ámbito de su competencia; y en las provincias y la Ciudad de Buenos Aires sus respectivas autoridades sanitarias.
