@@ -1,0 +1,1 @@
+ARTÍCULO 1°— Declárase de interés nacional en todo el territorio de la República Argentina, la atención biopsicosocial, la investigación científica y epidemiológica, la capacitación profesional en la detección y atención de las personas en riesgo de suicidio y la asistencia a las familias de víctimas del suicidio.
