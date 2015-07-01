@@ -1,0 +1,1 @@
+Artículo 1º: Declárese héroe nacional al general post mórtem don Andrés Guacurarí también conocido como comandante Andresito o Andresito Artigas, como tributo y reparación histórica por su contribución a la epopeya de la emancipación del continente americano.

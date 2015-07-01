@@ -1,0 +1,1 @@
+Artículo 2º: Desígnase sede nacional para la conmemoración de la batalla de Apóstoles el sitio histórico, ubicado en la ciudad de Apóstoles, provincia de Misiones, e institúyase el día 2 de julio de cada año como Día de la Conmemoración y Recuerdo de don Andrés Guacurarí.
