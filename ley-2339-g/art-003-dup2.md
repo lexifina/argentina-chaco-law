@@ -1,0 +1,10 @@
+ARTICULO 3° — En el marco de la presente ley se reconoce a la salud mental como un proceso determinado por componentes históricos, socio-económicos, culturales, biológicos y psicológicos, cuya preservación y mejoramiento implica una dinámica de construcción social vinculada a la concreción de los derechos humanos y sociales de toda persona.
+Se debe partir de la presunción de capacidad de todas las personas.
+En ningún caso puede hacerse diagnóstico en el campo de la salud mental sobre la base exclusiva de:
+a) Status político, socio-económico, pertenencia a un grupo cultural, racial o religioso;
+b) Demandas familiares, laborales, falta de conformidad o adecuación con valores morales, sociales, culturales, políticos o creencias religiosas prevalecientes en la comunidad donde vive la persona;
+c) Elección o identidad sexual;
+d) La mera existencia de antecedentes de tratamiento u hospitalización.
+Fuente: Dirección de Información Parlamentaria Güemes 120 - 5º Piso
+- T.E.: 0362 - 4441467 -internos: 194 - 200- Centrex 41467 Email: dir.informacionparlamentaria@legislaturachaco.gov.ar
+ES COPIA DIGITAL

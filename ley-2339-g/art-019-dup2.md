@@ -1,0 +1,1 @@
+ARTICULO 19. — El consentimiento obtenido o mantenido con dolo, debidamente comprobado por autoridad judicial, o el incumplimiento de la obligación de informar establecida en los capítulos VII y VIII de la presente ley, harán pasible al profesional responsable y al director de la institución de las acciones civiles y penales que correspondan.

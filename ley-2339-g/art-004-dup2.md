@@ -1,0 +1,1 @@
+ARTICULO 4° — Las adicciones deben ser abordadas como parte integrante de las políticas de salud mental. Las personas con uso problemático de drogas, legales e ilegales, tienen todos los derechos y garantías que se establecen en la presente ley en su relación con los servicios de salud.
