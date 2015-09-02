@@ -1,0 +1,1 @@
+ARTÍCULO 3° — Autoridad de aplicación. Será la autoridad de aplicación de la presente ley el Ministerio de Salud de la Nación.

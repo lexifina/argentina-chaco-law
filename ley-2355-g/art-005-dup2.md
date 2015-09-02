@@ -1,0 +1,1 @@
+ARTÍCULO 5° — Requisitos. Los procedimientos y técnicas de reproducción médicamente asistida sólo pueden realizarse en los establecimientos sanitarios habilitados que cumplan con los requisitos que determine la autoridad de aplicación.

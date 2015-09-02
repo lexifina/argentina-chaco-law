@@ -1,0 +1,1 @@
+ARTÍCULO 1° — Objeto. La presente ley tiene por objeto garantizar el acceso integral a los procedimientos y técnicas médico-asistenciales de reproducción médicamente asistida.
