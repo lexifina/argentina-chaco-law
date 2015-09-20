@@ -1,0 +1,1 @@
+ARTÍCULO 1° — Declárase de interés nacional y estratégico la actividad de los laboratorios de producción pública dedicados a la investigación y producción pública de medicamentos, materias primas para la producción de medicamentos, vacunas, insumos y productos médicos.

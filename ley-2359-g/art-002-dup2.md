@@ -1,0 +1,1 @@
+ARTÍCULO 2° — La presente ley tiene por objeto promover la actividad de los laboratorios de producción pública, entendiendo por tales a los que pertenecen al Estado nacional, provincial, municipal y de la Ciudad Autónoma de Buenos Aires, de las fuerzas armadas y de las instituciones universitarias de gestión estatal.
