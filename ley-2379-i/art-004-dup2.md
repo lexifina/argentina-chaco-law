@@ -1,0 +1,1 @@
+Artículo 4°: […] inciso e) Atender con políticas específicas la problemática de la agricultura familiar y los pequeños productores rurales, a cuyo efecto se garantizará la participación efectiva de las organizaciones representativas del sector.

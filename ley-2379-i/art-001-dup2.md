@@ -1,0 +1,1 @@
+ARTÍCULO 1° — Declárase de interés público la agricultura familiar, campesina e indígena por su contribución a la seguridad y soberanía alimentaria del pueblo, por practicar y promover sistemas de vida y de producción que preservan la biodiversidad y procesos sostenibles de transformación productiva.
