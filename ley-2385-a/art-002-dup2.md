@@ -1,0 +1,1 @@
+ARTICULO 2° — Los adhesivos, pegamentos, cementos de contacto, selladores o similares sólo podrán comercializarse cuando cuenten con la previa inscripción en un (1) Registro que será llevado por el Ministerio de Industria de la Nación, que expedirá el Certificado de Inscripción correspondiente.
