@@ -1,0 +1,1 @@
+Artículo 2° Bis: Dispónese afectar el diez por ciento (10%) del Fondo Bibliotecario Chaqueño, creado por la ley 1677-E, para solventar las erogaciones anuales que origine el funcionamiento en todas las bibliotecas del Subsistema Bibliotecario de la Provincia, del sector de la temática “Chaco”.
