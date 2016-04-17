@@ -1,0 +1,1 @@
+Artículo 3º — De conformidad con lo dispuesto en el artículo 1º, en el mes de marzo de cada año, el Poder Ejecutivo nacional, a través de los organismos que correspondan, desarrollará actividades de capacitación, difusión, prevención y concientización que promuevan la reflexión crítica sobre la violencia de género en los medios de comunicación.
