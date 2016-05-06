@@ -1,0 +1,1 @@
+ARTÍCULO 3° — De conformidad con lo dispuesto en el artículo 1°, el Poder Ejecutivo nacional a través de los organismos que correspondan, realizará la jornada, al menos una (1) vez durante el ciclo lectivo.
