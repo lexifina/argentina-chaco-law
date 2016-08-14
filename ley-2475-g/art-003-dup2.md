@@ -1,0 +1,1 @@
+ARTICULO 3° — El Poder Ejecutivo nacional dispondrá la realización de actividades en las que se destaque la importancia de la creación audiovisual e impulsará la más amplia difusión de la celebración, a través de los mecanismos de comunicación oficial.
