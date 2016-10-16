@@ -1,0 +1,1 @@
+ARTÍCULO 15. — Por única vez el/la presidente/a, el/la vicepresidente/a y el/la secretario/a general del Consejo Nacional del Deporte y la Actividad Física serán designados por el Poder Ejecutivo a los efectos de su organización.

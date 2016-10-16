@@ -1,0 +1,1 @@
+Artículo 2°: El Estado desarrollará su acción orientando, promoviendo, asistiendo, ordenando y fiscalizando las actividades físicas y deportivas desarrolladas en el país, conforme a los planes, programas y proyectos que se elaboren.

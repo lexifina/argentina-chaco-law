@@ -1,0 +1,14 @@
+Artículo 1°: El Estado atenderá al deporte y la actividad física en sus diversas manifestaciones considerando como objetivo fundamental:
+a) La universalización del deporte y la actividad física como derecho de la población y como factor coadyuvante a la formación integral de las personas, tanto dentro del marco del sistema educativo como en los demás aspectos de la vida social;
+b) La utilización del deporte y la actividad física como factores de la salud integral de la población, con una visión holística;
+c) El fomento de la práctica de competencias deportivas en procura de alcanzar los máximos niveles de las mismas, asegurando que las representaciones del deporte argentino a nivel internacional expresen la jerarquía cultural y deportiva del país;
+d) Establecer relaciones armoniosas entre los deportes educativo, social y comunitario; de ámbito laboral, universitario, militar, federado, de alto rendimiento y adaptado, así como también entre todas aquellas modalidades en que se conciba el deporte en función de las necesidades y las características personales de los participantes, así como de las condiciones regionales, institucionales, culturales y socioeconómicas del país;
+e) Promoción de una conciencia nacional de los valores del deporte y la actividad física y la implementación de las condiciones que permitan el acceso a su práctica a todo ser humano, ofreciendo oportunidades especiales a las personas jóvenes, los niños, las niñas y adolescentes, a las personas adultas mayores y a las personas con discapacidad, considerando a la animación sociocultural como auténtico medio de equilibrio, inclusión y plena integración social;
+f) La igualdad de oportunidades en términos de género de participar e intervenir a todos los
+Fuente: Dirección de Información Parlamentaria Güemes 120 - 5º Piso
+- T.E.: 0362 - 4441467 -internos: 194 - 200- Centrex 41467 Email: dir.informacionparlamentaria@legislaturachaco.gov.ar
+ES COPIA DIGITAL
+niveles de adopción de decisiones en el deporte y la actividad física;
+g) La diversidad del deporte y la actividad física, como una característica básica de su valor y atractivo y la protección y promoción de los juegos y deportes tradicionales de los/las aborígenes y las comunidades indígenas originarias, incluso en sus formas modernas y nuevas, como expresión del patrimonio cultural del país;
+h) Crear en lo nacional una estructura de administración, coordinación y apoyo al deporte y la actividad física; en lo provincial, concretar una armónica realización de esfuerzos tendientes al logro de tal estructura; en lo municipal, apoyar la satisfacción de las necesidades que la comunidad no pueda concretar, y, en lo privado, asegurar el asesoramiento y apoyo que le sea requerido; y
+i) La coordinación con los organismos públicos y privados en los programas de capacitación a todos los niveles, en las competencias y el ordenamiento y fiscalización de los recursos referidos al deporte.

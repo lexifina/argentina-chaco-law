@@ -1,0 +1,2 @@
+ARTÍCULO 12. — Los gastos que demande el funcionamiento del Instituto Nacional del Deporte y la Actividad Física y del Observatorio Nacional del Deporte y la Actividad Física serán imputados a la partida programática que corresponda en el Presupuesto General de la Administración Pública Nacional.
+A tales efectos facúltese al jefe de Gabinete de Ministros a efectuar las modificaciones presupuestarias que fueren necesarias.
