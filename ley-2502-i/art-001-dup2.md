@@ -1,0 +1,1 @@
+ARTÍCULO 1° — Prohíbese en toda la jurisdicción nacional el uso y/o tratamiento sanitario con cualquier tipo de plaguicidas fumigantes en los granos, productos y subproductos, cereales y oleaginosas durante la carga de los mismos en camiones y/o vagones y durante el tránsito de éstos hasta destino.

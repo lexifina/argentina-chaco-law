@@ -1,0 +1,2 @@
+ARTÍCULO 2°: La autoridad de aplicación instrumentará el Formulario único para el transporte en jurisdicción nacional en camiones y/o vagones de granos, productos y subproductos, cereales y oleaginosas, el que como anexo I, con una (1) foja, forma parte integrante de la presente norma.
+Para facilitar su cumplimiento, la autoridad de aplicación podrá instaurar su versión electrónica y acordar la colaboración de otros organismos públicos nacionales, provinciales o municipales.
