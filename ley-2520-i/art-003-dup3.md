@@ -1,0 +1,5 @@
+Artículo 3°: Institúyese un régimen de bonificación de tasas de interés para las Micro, Pequeñas y Medianas Empresas, tendiente a disminuir el costo del crédito. El monto de dicha bonificación será establecido en la respectiva reglamentación.
+Se favorecerá con una bonificación especial a las MiPyMES nuevas o en funcionamiento localizadas en los ámbitos geográficos que reúnan alguna de las siguientes características:
+a) Regiones en las que se registren tasas de desempleo superiores a la media nacional;
+b) Las provincias del norte argentino comprendidas dentro del Plan Belgrano;
+c) Regiones en las que se registren niveles de Producto Bruto Geográfico (PBG) por debajo de la media nacional.

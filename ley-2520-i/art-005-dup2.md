@@ -1,0 +1,1 @@
+ARTÍCULO 5° — Ganancia Mínima Presunta. Exclusión. No le será aplicable a las Micro, Pequeñas y Medianas Empresas el Impuesto a la Ganancia Mínima Presunta (Título V de la ley 25.063 y sus modificaciones), con efecto para los ejercicios fiscales que se inicien a partir del día 1° de enero de 2017.

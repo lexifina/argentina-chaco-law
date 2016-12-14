@@ -1,0 +1,1 @@
+ARTÍCULO 1° — Institúyese el Programa de Recuperación Productiva que fuera creado por la Resolución del Ministerio de Trabajo, Empleo y Seguridad Social N° 481 de fecha 10 de julio de 2002 y sus modificatorias y complementarias.

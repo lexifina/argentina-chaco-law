@@ -1,0 +1,6 @@
+Artículo 8°: Creación y objeto. Créase el Fondo de Garantía para la Micro, Pequeña y Mediana Empresa (Fogapyme) con el objeto de otorgar garantías en respaldo de las que emitan las sociedades de garantía recíproca y ofrecer garantías directas, a fin de mejorar las condiciones de acceso al crédito de las Micro, Pequeñas y Medianas Empresas y de las formas asociativas comprendidas en el artículo 1° de la presente ley, a:
+a) Las entidades financieras autorizadas por el Banco Central de la República Argentina;
+b) Las entidades no financieras que desarrollen herramientas de financiamiento para Micro, Pequeñas y Medianas Empresas;
+c) Inversores de instrumentos emitidos por Micro, Pequeñas y Medianas Empresas bajo el régimen de oferta pública en bolsas de comercio y/o mercados de valores debidamente autorizados por la Comisión Nacional de Valores.
+Asimismo, podrá otorgar garantías en respaldo de las que emitan los fondos provinciales o regionales o de la Ciudad Autónoma de Buenos Aíres constituidos por los gobiernos respectivos, cualquiera sea la forma jurídica que los mismos adopten, siempre que cumplan con requisitos técnicos iguales o equivalentes a los de las sociedades de garantía recíproca (SGR).
+El otorgamiento de garantías por parte del Fogapyme será a título oneroso.

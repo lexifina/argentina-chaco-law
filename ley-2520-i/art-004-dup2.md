@@ -1,0 +1,1 @@
+ARTÍCULO 4° — Tratamiento impositivo especial. Los sujetos que encuadren en la categoría de Micro, Pequeñas y Medianas Empresas, según los términos del artículo 1° de la ley 25.300 y sus normas complementarias, gozarán de un tratamiento impositivo especial, de acuerdo a lo establecido en el presente Título, en las formas y condiciones que establezca la reglamentación.

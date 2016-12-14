@@ -1,0 +1,1 @@
+ARTÍCULO 2° — La suma fija mensual máxima prevista en la reglamentación para los beneficios dispuestos por el programa se elevará en un cincuenta por ciento (50%) en los casos que se trate de Micro, Pequeñas y Medianas Empresas (MiPyMES), según los términos del artículo 1° de la ley 25.300 y sus normas complementarias.
