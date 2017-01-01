@@ -1,0 +1,6 @@
+La Cámara de Diputados de la Provincia del Chaco
+Sanciona con fuerza de Ley Nro. 2538-E
+(Antes Ley 7918)
+DECLARA PATRIMONIO HISTÓRICO Y CULTURAL DE LA PROVINCIA
+DEL CHACO A LA ESCUELA DE ENSEÑANZA PRIMARIA N° 8
+“DR. JULIÁN L. ACOSTA”
