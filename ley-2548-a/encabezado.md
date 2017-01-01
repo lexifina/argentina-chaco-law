@@ -1,0 +1,4 @@
+La Cámara de Diputados de la Provincia del Chaco
+Sanciona con fuerza de Ley Nro. 2548-A
+(Antes Ley 7934)
+INSTITUTO PROVINCIAL PARA LA INCLUSIÓN DE LAS PERSONAS CON DISCAPACIDAD (IProDiCh) -BONIFICACIÓN POR FUNCIONES ESPECIALES-
