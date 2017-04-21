@@ -1,0 +1,1 @@
+Artículo 2º: La presente ley tiene como finalidad promover el tratamiento plural e igualitario, evitando toda discriminación por afiliación, adhesión u orientación política de las personas y propiciando una mayor participación en la política nacional.

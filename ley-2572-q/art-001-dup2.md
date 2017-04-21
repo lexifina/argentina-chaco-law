@@ -1,0 +1,1 @@
+Artículo 1º: Institúyase el día 4 de julio de cada año como el "Día Nacional de la Convivencia y Pluralidad de las Expresiones Políticas", en conmemoración del mensaje histórico de despedida al extinto Presidente de la Nación General Juan Domingo Perón pronunciado por el Dr. Ricardo Balbín.
