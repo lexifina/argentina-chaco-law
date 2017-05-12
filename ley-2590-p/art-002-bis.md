@@ -1,0 +1,1 @@
+Artículo 2º Bis: Dispónese que en el acceso principal de cada localidad deberán ubicarse las Banderas Nacional, Provincial, Banderas, Estandartes y/o Escudos Municipales y la Bandera Whipala, conforme la precedencia dispuesta por el artículo 4º de la presente ley.
