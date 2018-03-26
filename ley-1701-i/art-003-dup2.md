@@ -1,0 +1,1 @@
+Artículo 3°: El Poder Ejecutivo nacional fijará la política nacional con respecto a las actividades mencionadas en el artículo 2, teniendo como objetivo principal satisfacer las necesidades de hidrocarburos del país con el producido de sus yacimientos, manteniendo reservas que aseguren esa finalidad.

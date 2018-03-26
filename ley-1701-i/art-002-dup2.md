@@ -1,0 +1,1 @@
+Artículo 2°: Las actividades relativas a la explotación, industrialización, transporte y comercialización de los hidrocarburos estarán a cargo de empresas estatales, empresas privadas o mixtas, conforme a las disposiciones de esta ley y las reglamentaciones que dicte el Poder Ejecutivo.

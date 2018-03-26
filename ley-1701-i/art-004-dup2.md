@@ -1,0 +1,1 @@
+Artículo 4°: El Poder Ejecutivo podrá otorgar permisos de exploración y concesiones temporales de explotación y transporte de hidrocarburos, con los requisitos y en las condiciones que determina esta ley.
