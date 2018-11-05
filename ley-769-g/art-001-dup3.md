@@ -1,0 +1,1 @@
+Artículo 1º: Incorporase la prevención del SIDA como tema en los programas de enseñanza de los niveles primario, secundario y terciario de educación. En la esfera de su competencia, actuará el Ministerio de Cultura y Educación, y se invitará a las Provincias y a la Municipalidad de la Ciudad de Buenos Aires a hacer lo propio.

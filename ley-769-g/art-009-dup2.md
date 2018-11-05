@@ -1,0 +1,1 @@
+Artículo 9º: El Ministerio de Salud determinará los controles mencionados en el artículo 9º de la Ley. El Ministerio del Interior asignará a la Dirección Nacional de Migraciones los recursos necesarios para su cumplimiento.

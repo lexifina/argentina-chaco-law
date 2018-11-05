@@ -1,0 +1,1 @@
+Artículo 7º: A los fines de la Ley, los tejidos y líquidos biológicos de origen humano serán considerados equivalente a los órganos. Serán aplicables al artículo 21 de la Ley Nº 22.990 y el artículo 18 del Decreto Nº 375 del 21 de marzo de 1989.

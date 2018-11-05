@@ -1,0 +1,1 @@
+Artículo 12: El Ministerio de Salud establecerá las normas de bioseguridad a que se refiere el artículo 12 de la Ley. El personal que manipule el material a que alude dicha nota será adiestrado mediante programas continuos y de cumplimiento obligatorio, y se le entregará constancia escrita de haber sido instruidos sobre las normas a aplicar.

@@ -1,0 +1,1 @@
+Artículo 11: Las autoridades sanitarias llevarán a cabo programas de vigilancia epidemiológica a los fines de cumplir la información. Sólo serán registradas cantidades, sin identificación de personas.
