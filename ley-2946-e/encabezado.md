@@ -1,0 +1,6 @@
+“2018 Año de la Concientización sobre la Violencia de Género #NiUnaMenos”.
+La Cámara de Diputados de la Provincia del Chaco
+Sanciona con fuerza de Ley Nro. 2946-E
+ADHESIÓN A LA LEY NACIONAL 27.306 - DECLARA DE INTERÉS NACIONAL EL ABORDAJE INTEGRAL E INTERDISCIPLINARIO DE LOS
+SUJETOS QUE PRESENTAN DIFICULTADES ESPECÍFICAS DEL
+APRENDIZAJE (DEA)
