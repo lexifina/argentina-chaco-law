@@ -1,0 +1,6 @@
+“2018 Año de la Concientización sobre la Violencia de Género #NiUnaMenos”.
+La Cámara de Diputados de la Provincia del Chaco
+Sanciona con fuerza de Ley Nro. 2956-C
+CREA EL COLEGIO DE PROFESIONALES DE LA HIGIENE Y SEGURIDAD EN
+EL TRABAJO DE LA PROVINCIA DEL CHACO
+TÍTULO I CAPÍTULO I DISPOSICIONES GENERALES DE LAS CONDICIONES DEL EJERCICIO PROFESIONAL
