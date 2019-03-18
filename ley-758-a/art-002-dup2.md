@@ -1,0 +1,1 @@
+Artículo 2°: La Sociedad tendrá su domicilio legal en la ciudad de Resistencia, provincia del Chaco, pudiendo el directorio establecer sucursales, delegaciones, oficinas o agencias en cualquier lugar de la republica argentina o del extranjero.

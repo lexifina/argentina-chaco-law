@@ -1,0 +1,1 @@
+Artículo 7°: El capital social podrá ser aumentado hasta el quíntuplo por decisión de la asamblea ordinaria, en los términos del artículo 188 de la ley 19.550 (t.o. 1984), pudiendo aquella delegar en el directorio las decisiones vinculadas a la época de emisión, forma y condiciones de pago.

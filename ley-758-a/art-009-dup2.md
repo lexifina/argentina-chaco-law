@@ -1,0 +1,1 @@
+Artículo 9°: De las acciones clase b, solo podrán ser titulares los trabajadores en relación de dependencia de la sociedad, a título personal o mediante sociedades de inversión constituidas exclusivamente por estos. Respetando esta limitación, tales acciones son libremente transferibles.

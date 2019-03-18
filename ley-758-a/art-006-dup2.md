@@ -1,0 +1,1 @@
+Artículo 6°: El capital de la sociedad se fija en pesos dos millones cien mil ($2.100.000) y representado por dos millones cien mil acciones ordinarias escriturales de valor nominal un peso ($1) y con derecho a un voto cada acción.
