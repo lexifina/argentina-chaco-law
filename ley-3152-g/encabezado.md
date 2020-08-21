@@ -1,0 +1,5 @@
+“2020 -Año del Congreso Pedagógico”
+La Cámara de Diputados de la Provincia del Chaco
+Sanciona con fuerza de Ley Nro. 3152-G
+PROGRAMA DE PROMOCIÓN Y CONCIENTIZACIÓN SOBRE LA IMPORTANCIA SANITARIA DE LA DONACIÓN DE PLASMA DE PACIENTES
+RECUPERADOS DE COVID-19
