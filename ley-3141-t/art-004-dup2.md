@@ -1,0 +1,1 @@
+artículo 4° deberá mantenerse vigente y actualizado como fuente de información para la formulación de políticas públicas para el sector, debiendo dictarse oportunamente la reglamentación necesaria al efecto.
