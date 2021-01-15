@@ -1,0 +1,5 @@
+“2020 -Año del Congreso Pedagógico”
+La Cámara de Diputados de la Provincia del Chaco
+Sanciona con fuerza de Ley Nro. 3301-G
+CAMPAÑA DE CONCIENTIZACIÓN Y DIFUSIÓN DE LA LEY DE RESPETO A LOS TIEMPOS DE LA VICTIMA DE LOS DELITOS CONTRA LA INTEGRIDAD
+SEXUAL DE MENORES
