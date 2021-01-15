@@ -1,0 +1,5 @@
+Artículo 4.- Condición de Usuario. Firma electrónica: El acceso y utilización del IURE determina la condición de usuario. La clave suministrada a los operadores internos y externos para el acceso al IURE constituye su firma electrónica. Los actos o las presentaciones efectuadas en IURE se entienden suscriptos por el usuario al que pertenece la firma electrónica.
+Son operadores internos: magistrados, funcionarios, prosecretarios, jefes de despacho y de oficinas que conforme los códigos y reglamento interno del poder judicial se encuentren facultados para suscribir actuaciones.
+Son operadores externos: partes, letrados, peritos, síndicos y en general auxiliares de justicia a quienes se le acuerda intervención o acceso al sistema.
+La consulta pública de causas, estará disponible para cualquier ciudadano/a (art. 107 RIPJ). Los límites en la visibilidad de la información estarán dados por la particularidad de cada proceso, su carácter de reservado o confidencial según las normas procesales de cada fuero.
+El Sistema asignará a los usuarios externos registrados, diferentes niveles de acceso a la información en concordancia con el art. 107 del RIPJ.

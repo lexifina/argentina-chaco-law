@@ -1,0 +1,4 @@
+Artículo 15.- Ingreso de causas. Presentación Inicial: Para el inicio de una nueva causa, el profesional deberá ingresar en el IURE, con carácter de Declaración Jurada y bajo su expresa responsabilidad, la siguiente información: (1) fuero; (2) circunscripción; (3) objeto de juicio conforme el nomenclador del sistema; (4) datos del actor; (5) datos del demandado; (6) datos del profesional; (7) datos de tasas, aportes y contribuciones; (8) escrito de demanda; (9) prueba documental, si fuera el caso.
+Los datos del actor, del demandado y del profesional son los que se individualizan en IURE.
+Si el profesional es apoderado deberá presentar el poder en formato digital. Si es patrocinante, deberá observar lo dispuesto en el art. 7 inc. 2) de la Ley Expediente Electrónico.
+Una vez efectuada la carga de los datos requeridos, el IURE emitirá la constancia de la presentación respectiva.

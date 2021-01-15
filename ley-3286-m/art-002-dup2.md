@@ -1,0 +1,1 @@
+Artículo 2.- Carácter General: El régimen que se establece en el presente es de carácter general, de aplicación complementaria a las disposiciones vigentes en materia de presentaciones INDI y notificaciones electrónicas o las demás de carácter específico dictadas, o que en el futuro puedan establecerse para procesos o situaciones particulares.

@@ -1,0 +1,1 @@
+Articulo 12.- Domicilio electrónico: Deberá constituirse en la primera presentación que se realice en los términos dispuestos en los códigos procesales de los respectivos fueros y conforme lo previsto en el Anexo del Acuerdo 3336 punto 3° del 02/09/14 y las Resoluciones N° 2232 del 17/12/14 y 162 del 25/02/19.

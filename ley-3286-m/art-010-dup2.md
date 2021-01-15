@@ -1,0 +1,2 @@
+Artículo 10.- Presentación de Convenios: Se realizará electrónicamente por parte de uno de los profesionales firmantes escaneando el mismo en formato PDF. El o los restantes profesionales intervinientes en el Acuerdo, efectuarán su adhesión o ratificación mediante presentación electrónica.
+En el caso que para la homologación se requiera la previa ratificación personal de alguna de las partes, cada organismo arbitrará el mecanismo pertinente.
