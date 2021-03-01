@@ -1,0 +1,1 @@
+artículo 341. Si se ignorase el actual domicilio del destinatario de la notificación, ésta se practicará conforme las normas de este Código para la notificación de personas inciertas o con domicilio o residencia ignorados o desconocidos.

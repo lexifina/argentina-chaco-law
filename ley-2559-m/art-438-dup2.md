@@ -1,0 +1,1 @@
+artículo 438. Si se hubiesen presentado otros puntos de pericia u observado la procedencia de los propuestos por la parte que ofreció la prueba, se otorgará traslado a ésta. Cuando los litisconsortes no concordaran en la designación del consultor técnico de su parte, el Juzgado desinsaculará a uno de los propuestos.
