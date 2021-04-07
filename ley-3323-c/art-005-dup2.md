@@ -1,0 +1,1 @@
+Artículo 5º: La confidencialidad cubre la información que el mediador reciba en sesión privada. El mediador deberá guardar absoluta reserva de lo que las partes le confíen y no le autoricen a transmitir a la otra parte.
