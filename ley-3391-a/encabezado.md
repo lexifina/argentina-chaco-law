@@ -1,0 +1,6 @@
+“2021-Año de El Impenetrable Chaqueño, Departamento General Güemes”
+La Cámara de Diputados de la Provincia del Chaco
+Sanciona con fuerza de Ley Nro. 3391-A
+BONIFICACIONES DEDICACIÓN EXCLUSIVA, AUXILIARES DE ENFERMERIA.
+ESTABLECIMIENTOS SANITARIOS Y RESTO DE BONIFICACIONES
+INCREMENTOS DESDE ABRIL/21, AGOST0/21 Y NOVIEMBRE/21
