@@ -1,0 +1,7 @@
+“2020 -Año del Congreso Pedagógico”
+La Cámara de Diputados de la Provincia del Chaco
+Sanciona con fuerza de Ley Nro. 3161-W
+PAUTAS PARA LA ATENCION DE PUEBLOS Y COMUNIDADES INDIGENAS
+ANTE LA EMERGENCIA SANITARIA GENERADA POR LA PANDEMIA DEL
+COVID-19
+OBJETO
