@@ -1,0 +1,6 @@
+“2021-Año de El Impenetrable Chaqueño, Departamento General Güemes”
+La Cámara de Diputados de la Provincia del Chaco
+Sanciona con fuerza de Ley Nro. 3441-C
+LEY DE PROTECCIÓN INTEGRAL PARA PREVENIR, SANCIONAR Y ERRADICAR LA DISCRIMINACIÓN EN RAZÓN DE LA EDAD EN TODOS LOS
+ÁMBITOS SOCIALES DE LA PROVINCIA
+TÍTULO I DISPOSICIONES GENERALES
