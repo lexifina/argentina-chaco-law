@@ -1,0 +1,7 @@
+“2021-Año de El Impenetrable Chaqueño, Departamento General Güemes”
+La Cámara de Diputados de la Provincia del Chaco
+Sanciona con fuerza de Ley Nro. 3463-F
+PRESUPUESTO GENERAL DE LA PROVINCIA PARA EL EJERCICIO 2022
+TÍTULO I DISPOSICIONES GENERALES
+CAPÍTULO I DEL PRESUPUESTO DE GASTOS Y RECURSOS DE LA ADMINISTRACIÓN
+PROVINCIAL
