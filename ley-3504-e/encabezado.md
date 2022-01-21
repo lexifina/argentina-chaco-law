@@ -1,0 +1,7 @@
+“2021-Año de El Impenetrable Chaqueño, Departamento General Güemes”
+La Cámara de Diputados de la Provincia del Chaco
+Sanciona con fuerza de Ley Nro. 3504-E
+DECLARAR PATRIMONIO HISTÓRICO Y CULTURAL DE LA PROVINCIA DEL
+CHACO, AL PRIMER INMUEBLE, SEDE CENTRAL DEL INSTITUTO DEL
+ABORIGEN CHAQUEÑO, UBICADO EN LA LOCALIDAD DE COLONIA
+ABORIGEN
