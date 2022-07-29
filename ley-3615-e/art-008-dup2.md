@@ -1,0 +1,1 @@
+Artículo 8°: La Comisión evaluadora estará a cargo de las bases, reglamentación, organización y ejecución del premio instituido por el artículo 1º y procederá a la evaluación y antecedentes de los jóvenes postulados.
