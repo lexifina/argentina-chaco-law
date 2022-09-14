@@ -1,0 +1,6 @@
+“2022 -Año de la memoria en homenaje a trabajadores y trabajadoras
+esenciales y a fallecidos en contexto de la pandemia COVID19”.
+La Cámara de Diputados de la Provincia del Chaco
+Sanciona con fuerza de Ley Nro. 3532-A
+CREA BONIFICACIÓN POR MAYORES FUNCIONES Y RESPONSABILIDADES PARA EL MINISTERIO DE PLANIFICACIÓN, ECONOMÍA E INFRAESTRUCTURA -CONTADURÍA GENERAL DE LA PROVINCIA -TESORERÍA GENERAL DE LA PROVINCIA Y DIRECCIÓN
+GENERAL DE FINANZAS Y PROGRAMACIÓN PRESUPUESTARIA
