@@ -1,0 +1,5 @@
+La Cámara de Diputados de la Provincia del Chaco
+Sanciona con fuerza de Ley Nro. 2557-A
+(Antes Ley 7948)
+EXPROPIACIÓN Y TRANSFERENCIA DE UN INMUEBLE DE RESISTENCIA A LA
+COOPERATIVA DE TRABAJO Y CONSUMO INIMBO
