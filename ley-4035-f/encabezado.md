@@ -1,0 +1,9 @@
+“2024-Año del 30° Aniversario de la Reforma
+de la Constitución Nacional y Provincial”
+La Cámara de Diputados de la Provincia del Chaco
+Sanciona con fuerza de Ley Nro. 4035-F
+MODIFICA EL PRESUPUESTO GENERAL DE LA PROVINCIA DEL CHACO
+PARA EL EJERCICIO 2024
+TÍTULO I DISPOSICIONES GENERALES
+CAPÍTULO I DEL PRESUPUESTO DE GASTOS Y RECURSOS DE LA ADMINISTRACIÓN
+PROVINCIAL
