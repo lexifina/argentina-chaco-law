@@ -1,0 +1,5 @@
+Artículo 55 TER: La capacitación estará a cargo de manera indistinta por los siguientes organismos:
+a) Secretaría de Derechos Humanos y Géneros; b) Oficina Interdisciplinaria para la Prevención, Tratamiento y Sanción de la Violencia Laboral “Beatriz Vásquez” con funcionamiento en el Poder Legislativo; c) Área de Capacitación del Poder Judicial que al efecto designe el Superior Tribunal de Justicia; d) Instituciones Educativas, Universidades Públicas y Privadas con asiento en la Provincia; e) Partidos Políticos o Alianzas Electorales Provinciales; f) Áreas Municipales que a tal fin dispongan los Intendentes de las localidades de la Provincia; g) Toda otra entidad que cuente con la autorización correspondiente. Los organismos mencionados en los incisos precedentes, serán autorizados por el Tribunal Electoral de la Provincia.
+Fuente: Dirección de Información Parlamentaria Güemes 120 - 5° Piso
+T.E.: 0362 - 4441467 - Internos: 194-200 - Centrex: 41467 Email: dir.informacionparlamentaria@legislaturachaco.gov.ar
+ES COPIA DIGITAL
