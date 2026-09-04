@@ -1,0 +1,1 @@
+Artículo 139 Terdecies: Complementariedad normativa. La presente regulación se aplicará sin perjuicio de las disposiciones previstas en el Título XII -Identidad Digital de las Personas- incorporado por ley 3440-J y demás normativa provincial vigente.

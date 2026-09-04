@@ -1,0 +1,7 @@
+Artículo 139 Nonies: Utilización de identidad falsa o suplantada. Será sancionado con arresto de hasta sesenta (60) días o multa equivalente en efectivo de hasta quince (15) remuneraciones mensuales mínimas, vitales y móviles, o ambas conjuntamente, quien adoptare, creare, utilizare o difundiere una identidad digital ajena o falsa que utilice datos identificatorios de otra persona, o quién actuare bajo identidad anónima o suplantando la identidad de un tercero, con el fin de hostigar, intimidar, dañar, defraudar, amenazar o causar perjuicio a
+Fuente: Dirección de Información Parlamentaria - Pueyrredón 95 - 2º Piso
+- T.E.: 0362 - 4441467 -internos: 194 - 200- Centrex 41467 Email: dir.informacionparlamentaria@legislaturachaco.gov.ar
+ES COPIA DIGITAL
+otro mediante el uso de cualquier medio de comunicación o transmisión de datos.
+Cuando la conducta se cometiere en contexto de violencia de género o intrafamiliar, la sanción se elevará a arresto de hasta ciento veinte (120) días o multa equivalente en efectivo de hasta veinte (20) remuneraciones mensuales mínimas, vitales y móviles, o ambas conjuntamente.
+Serán de aplicación los agravantes del artículo 139 quater.
