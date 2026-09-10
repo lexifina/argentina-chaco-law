@@ -1,0 +1,5 @@
+Artículo 40 bis: Serán considerados motovehículos, los siguientes bienes autopropulsados a motor: ciclomotores, motocicletas, motonetas, motocarros (motocarga o motofurgón), triciclos
+Fuente: Dirección de Información Parlamentaria Pueyrredón 95 - 2° Piso
+T.E: 0362 - 4441467 - Internos: 194-200 - Centrex: 41467 Email: dir.informacionparlamentaria@legislaturachaco.gov.ar
+ES COPIA DIGITAL
+y cuatriciclos, siendo los requisitos para circular los establecidos en el Título V y el artículo 40, en todo lo que sea pertinente y establezca la reglamentación. Queda prohibido el tránsito de cuatriciclos en la vía pública.

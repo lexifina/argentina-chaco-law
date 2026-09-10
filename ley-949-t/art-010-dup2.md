@@ -1,0 +1,1 @@
+Artículo 10: Cursos de capacitación. A los fines de esta Ley, los funcionarios a cargo de su aplicación y de la comprobación de faltas deben concurrir en forma periódica a cursos especiales de enseñanza de esta materia y de formación para saber aplicar la legislación y hacer cumplir sus objetivos.

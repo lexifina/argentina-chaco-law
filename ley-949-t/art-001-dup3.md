@@ -1,0 +1,1 @@
+Artículo 1°: Impártase con carácter obligatorio en todos los establecimientos dependientes e incorporados a los planes oficiales del Ministerio de Educación y Justicia de la Nación y Secretaría de Educación de la Municipalidad de la Ciudad de Buenos Aires la enseñanza de la "Educación Vial".

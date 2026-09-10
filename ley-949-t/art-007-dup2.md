@@ -1,0 +1,4 @@
+Artículo 7º: Funciones. El Consejo tendrá por funciones:
+a) Proponer políticas de prevención de accidentes; b) Aconsejar medidas de interés general según los fines de esta ley; c) Alentar y desarrollar la educación vial; d) Organizar cursos y seminarios para la capacitación de técnicos y
+funcionarios; e) DEROGADO POR ARTÍCULO 22 LEY Nº 26.363; f) DEROGADO POR ARTÍCULO 22 LEY Nº 26.363; g) Armonizar las acciones interjurisdiccionales; h) Impulsar la ejecución de sus decisiones; i) Instrumentar el intercambio de técnicos entre la Nación, las provincias y las municipalidades. j) Promover la creación de organismos provinciales multidisciplinarios de coordinación en la materia, dando participación a la actividad privada; k) Fomentar y desarrollar la investigación accidentológica, promoviendo la
+implementación de las medidas que resulten de sus conclusiones; l) Actualizar permanentemente el Código Uniforme de Señalización y controlar su aplicación.
