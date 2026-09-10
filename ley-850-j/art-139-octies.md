@@ -1,0 +1,2 @@
+Artículo 139 Octies: Difusión no consentida. Será sancionado con multa equivalente en efectivo de hasta dieciocho (18) remuneraciones mensuales mínimas, vitales y móviles o arresto de hasta noventa (90) días quien, sin consentimiento libre, expreso e informado de la persona afectada, publique, distribuya, comparta, exhiba o facilite el acceso a contenido digital manipulado o sintético de carácter sexual e íntimo.
+Si la difusión se realizare por medios digitales de acceso masivo, redes sociales o plataformas de amplia circulación, la sanción se aplicará en su máximo.

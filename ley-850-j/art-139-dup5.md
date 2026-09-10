@@ -1,0 +1,2 @@
+Artículo 139 Quaterdecies: Protección Integral de Niñas, Niños y Adolescentes. Cuando la presunta víctima sea niña, niño o adolescente, la autoridad interviniente deberá adoptar medidas de protección reforzada y dar inmediata intervención a los organismos administrativos competentes del Sistema de Protección Integral de Derechos, sin perjuicio de las actuaciones judiciales que correspondan.
+Las medidas deberán priorizar la protección de la integridad psíquica, emocional, social y digital de la víctima, evitando su revictimización.
