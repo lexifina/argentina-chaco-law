@@ -1,0 +1,9 @@
+# Ley 2851-G: ADHESIÓN L.N. 27232 - ESTABLECE EL NOMENCLADOR BIOQUÍMICO ÚNICO.
+
+Ley 2851-G · 1 versions, from 2018-08-10 (latest in force: 2018-08-10) · <https://digesto.legislaturachaco.gob.ar/Documentos/Ley/VistaPublicaLey/517253>
+
+| Provision | File | Changes | Last changed |
+| --- | --- | ---: | --- |
+| Artículo 1 | [art-001.md](art-001.md) | 0 |  |
+| Artículo 2 | [art-002.md](art-002.md) | 0 |  |
+| Encabezado | [encabezado.md](encabezado.md) | 0 |  |

@@ -1,0 +1,11 @@
+{
+  "path": "ar-h",
+  "code": "AR-H",
+  "name": "Chaco",
+  "level": "province",
+  "parent": "ar",
+  "repo": "https://github.com/lexifina/argentina-chaco-law",
+  "build": "built: constitution, codes and laws (2990 norms, 2990 versions) from https://digesto.legislaturachaco.gob.ar/",
+  "language": "es",
+  "sources": 1
+}
